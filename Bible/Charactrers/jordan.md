@@ -3,6 +3,7 @@
 **Role:** Member of Nancy Griffin's support group at St. Anne's
 **Status:** Active — first appears Chapter 22
 **Full name:** Jordan (first name only given)
+**Identity:** Intersex
 
 ---
 
@@ -14,7 +15,7 @@ About thirty. Taller than Maya realised at first meeting. Has a quality of delib
 
 ## Personality
 
-Quiet in the particular way of someone who has measured their words for a long time and has chosen which ones are worth spending. He is not closed — he is precise. He speaks in the group without performance or apology.
+Quiet in the particular way of someone who has measured their words for a long time and has chosen which ones are worth spending. He is not closed — he is precise. He speaks in the group without performance or apology. Warm and understanding. Speaks from lived experience. Encouraging and supportive.
 
 ---
 
@@ -26,13 +27,17 @@ He tells Maya, on her first visit, that he can tell it is her first time from th
 
 ---
 
-## At the Exhibition
+## Key Scenes
 
-He attends the gallery opening with Diane. He stays until nearly the end.
+- Scene 13.6.5: The Support Group — shares his story, speaks to Maya
+- Exhibition: Attends with Diane, stays until nearly the end
+- Wedding: Present, seated with Diane
 
-## At the Wedding
+---
 
-He is present. He is seated with Diane.
+## Key Dialogue
+
+- *"You were never alone. Not for a single day of it. You just didn't know where we were."*
 
 ---
 

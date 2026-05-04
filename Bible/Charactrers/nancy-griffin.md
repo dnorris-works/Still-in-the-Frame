@@ -2,6 +2,8 @@
 
 **Role:** Co-officiant at Riverside Community Church / support group convener
 **Status:** Active — first appears Chapter 21
+**Age:** In her sixties
+**Identity:** Not intersex — her authority comes from scholarship and decades of sitting with people the institution has rejected. She has no personal stake. She stands on the right side by choice.
 
 ---
 
@@ -14,6 +16,8 @@ In her sixties. Solidly built. Wears a clerical collar under a cardigan in a sha
 ## Personality
 
 She moves quietly in rooms where things matter. She is present before you notice she has arrived. She says things in a normal voice, as plain fact, in contexts where other people would lower their voice — including: *"I've sat with a lot of people the church didn't know what to do with. God always did. It was the institution that got confused."* She has no interest in performing authority because she does not need it. She is not unkind — she is economical with words and trusts people to receive them without packaging.
+
+Warm, theologically rigorous, pastorally experienced. Has done the theological work; knows the scriptures well enough to argue back against exclusionary readings. Warm and unhurried. Speaks from theology, not personal experience. Does not explain or argue — simply affirms. Spiritual but not preachy.
 
 ---
 
@@ -39,10 +43,26 @@ She co-officiates the wedding. Her blessing: *brief, precise, the theology of it
 
 ---
 
+## Key Scenes
+
+- Ch 19: The Church — approaches Maya after the service; warm, unhurried, no performance
+- Ch 20: The Support Group — convenes; creates the space for Maya to speak
+- Ch 28: The Wedding — co-officiates with Pastor James
+
+---
+
+## Key Dialogue
+
+- *"I've sat with a lot of people the church didn't know what to do with. God always did."*
+- *"You deserve love. Romantic love. Sexual love. Spiritual love. All of it. God made you capable of giving and receiving all of it."*
+
+---
+
 ## Key Relationships
 
 - **Maya Vasquez** — She sees her walking in and greets her with the ease of someone for whom Maya's presence is unsurprising. She is waiting for this conversation without having been told it was coming.
 - **The group** — Jordan, Diane, Clare, and others (including the younger Priya). She holds them with authority that comes from long practice and genuine care.
+- **Pastor James** — Her co-pastor and co-officiant.
 
 ---
 
