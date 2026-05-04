@@ -56,43 +56,43 @@ Zoe was watching her.
 
 ---
 
-Bowen's office had the same quality it always had: the paintings on the wall, the desk buried under journals, the sense of a room in which a great deal of careful thought had happened and left a residue. She had come to drop off a hard copy of the submitted thesis — not required, just the thing she wanted to do, to put it into his hands and have him hold it.
+Bowen's office had the same quality it always had: the paintings on the wall, the desk buried under journals, the sense of a room in which a great deal of careful thought had happened and left a residue. She had come to drop off a hard copy of the submitted thesis — not required, just the thing she wanted to do, to put it into her hands and have her hold it.
 
-He weighed it, literally, bouncing it once in his palm.
+She weighed it, literally, bouncing it once in her palm.
 
-"Good," he said. "Sit down."
+"Good," she said. "Sit down."
 
 She sat.
 
-He set the thesis on the desk and looked at her over his glasses with the particular attention he reserved for things that actually interested him.
+Bowen set the thesis on the desk and looked at her over her glasses with the particular attention she reserved for things that actually interested her.
 
-"And now?" he said.
+"And now?" she said.
 
 She had been expecting a question about the defence date, or the examination process, or the publication prospects for the Voss argument. She had not been expecting *and now*, delivered with the inflection of someone asking about something larger than the administrative next steps.
 
 "I'm not sure," she said. Which was honest.
 
-"The thesis." He leaned back. "What was it actually about?"
+"The thesis." Bowen leaned back. "What was it actually about?"
 
-She looked at him. "Abstract expressionism. Hidden narratives. The cost of concealment and the—"
+She looked at her. "Abstract expressionism. Hidden narratives. The cost of concealment and the—"
 
-"No," he said, not unkindly. "What was it actually about."
+"No," she said, not unkindly. "What was it actually about."
 
 She was quiet for a moment.
 
 "Me," she said.
 
-He nodded, as if she had confirmed something he had known for two years. "It always is, with the best ones. The frame is the frame. The subject is the subject." He folded his hands on the desk. "What happens to it now? The thing you were actually writing about."
+Bowen nodded, as if she had confirmed something she had known for two years. "It always is, with the best ones. The frame is the frame. The subject is the subject." She folded her hands on the desk. "What happens to it now? The thing you were actually writing about."
 
 She thought about Ethan in the darkroom. The photographs on the wire. The exhibition, forty-two prints, every one of them a choice. Bret's notebook, empty. The woman near the east wall who had said *I didn't know this was possible.*
 
 "It continues," she said. "Without the hiding."
 
-Bowen looked at her for a moment. "Good," he said again. "That's the right answer." He picked up his pen. "Your defence panel will include Hartley from Edinburgh — she's read the Voss argument and has thoughts. Be ready for her."
+Bowen looked at her for a moment. "Good," she said again. "That's the right answer." She picked up her pen. "Your defence panel will include Hartley from Edinburgh — she's read the Voss argument and has thoughts. Be ready for her."
 
 And just like that they were back to logistics, which was also correct.
 
-She walked out of his office and down the corridor and out into the afternoon. The sun was still on the buildings. She stood on the pavement for a moment and didn't go anywhere in particular and found she didn't need to.
+She walked out of Bowen's office and down the corridor and out into the afternoon. The sun was still on the buildings. She stood on the pavement for a moment and didn't go anywhere in particular and found she didn't need to.
 
 ---
 

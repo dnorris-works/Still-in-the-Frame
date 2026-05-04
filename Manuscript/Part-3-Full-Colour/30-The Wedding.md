@@ -70,7 +70,7 @@ Jordan from the group sat two rows back, with Diane beside her.
 
 Bowen was there, in the middle, with a colleague Maya didn't recognise, which was entirely in character.
 
-Jake sat near the back, slightly apart, in the particular posture of a man still carrying something he hadn't yet put down. He had sent a card after the engagement — handwritten, longer than she had expected, and she had read it twice and kept it. It was not the reckoning the character file said he owed her. It was a beginning of one.
+Jake sat near the back, slightly apart, in the particular posture of a man still carrying something he hadn't yet put down. He had sent a card after the engagement — handwritten, longer than she had expected, and she had read it twice and kept it. It was not the full reckoning she had once imagined. It was a beginning of one.
 
 Rachel stood at the front, on Ethan's side, in the deep green she had chosen after three weeks of opinions about which Rachel had been entirely correct, her hair pinned up, her face doing the thing Ethan's face did when something genuinely moved her — the effort of containment visible in the jaw.
 

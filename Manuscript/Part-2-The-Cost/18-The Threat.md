@@ -4,7 +4,7 @@ She saw him at seven forty-three.
 
 She knew the time because she had checked her watch a few minutes earlier — an old habit at openings, tracking the arc of the evening, knowing when the room would peak and when it would begin to thin. The exhibition was called *Drawn Inward: New Acquisitions in Works on Paper*, and it was the Hidden Gallery's strongest show in two years, and Maya had been feeling good about it for most of the evening.
 
-Then she looked up from a conversation with the gallery's assistant director and saw Bret Calloway standing in the second room with a glass of wine and his press lanyard and the particular ease of someone who was exactly where he was supposed to be.
+Then she looked up from a conversation with the gallery's assistant director and saw Bret Reynolds standing in the second room with a glass of wine and his press lanyard and the particular ease of someone who was exactly where he was supposed to be.
 
 Her body registered him before her mind caught up — a cold drop through the chest, the reflexive assessment she'd spent three years trying to unlearn. He hadn't seen her yet. He was looking at the work: a large graphite piece, two figures, which he appeared to be evaluating with professional detachment.
 

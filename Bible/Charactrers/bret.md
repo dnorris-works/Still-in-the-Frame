@@ -1,27 +1,43 @@
-# Bret
+# Bret Reynolds
 
 **Role:** Figure from Maya's past
-**Status:** Not present in the story's timeline — referenced only
-**Full name:** First name only given
+**Status:** Not present in the story's timeline until Chapter 18, then recedes
+**Full name:** Bret Reynolds
 
 ---
 
 ## Who He Is
 
-A man from Maya's past whose response to her — he looked at her with disgust — became the event everything since has been built around. He is not described further. He does not need to be. The shape of what he left behind is present in every room Maya enters.
+An arts critic and journalist. He covers gallery openings and writes for publications that reach the professional world Maya and the museum inhabit. He was someone Maya trusted — she knew his work before she knew him, which was part of why.
+
+---
+
+## What He Did
+
+When Maya told him she was intersex, he said: *"You're a freak. You're not a real woman. You deceived me."* He threatened to tell people she was trans — framing it as a warning that she would ruin herself — and made clear he had the platform and the connections to do it. He said it in a controlled voice, which was somehow worse than shouting.
+
+He is the reason the managing voice exists. The reason every relationship before Ethan ended before it could reach the disclosure point. The reason a prayer the night before the telling became the last prayer for years. He is a character who never appears on the page as a human being — he appears as a threat, a memory, a presence in the structure of Maya's fear.
+
+---
+
+## His Reappearance
+
+He attends the *Drawn Inward* opening (Ch. 18) with his press lanyard. He approaches Maya after the room has emptied and says: *"We should talk. About what I know."* Maya responds by telling him she will make their intimacy public if he moves against her. He recalibrates and leaves.
+
+At the spring portrait exhibition (Ch. 23), he comes again with his press lanyard. He moves through the room and stands in front of the kitchen-table photograph for nearly two minutes. He does not write in his notebook. He puts it in his pocket and leaves. The threat passes without being spoken.
 
 ---
 
 ## What He Left
 
-Maya has been running the managing voice since she was seventeen. It was built in direct response to him. He is also implicated in the loss of her faith — both losses appear to trace to approximately the same period in her life.
+The managing voice. The architecture of concealment. The word Maya carried for three years. The specific structure of her fear — not of being found, but of being found and lost. His absence from the portrait exhibition is the moment his power ends.
 
 ---
 
 ## Key Relationships
 
-- **Maya Vasquez** — His absence is a defining presence in her life. Every moment of vulnerability she navigates is, in some way, a negotiation with what he did.
+- **Maya Vasquez** — His absence is the defining presence in her story.
 
 ---
 
-*Last updated: Chapter 11*
+*Last updated: Chapter 30*

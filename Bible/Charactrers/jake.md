@@ -1,13 +1,14 @@
 # Jake
 
 **Role:** Ethan's best friend
-**Full name:** Not yet given
+**Status:** Active — first appears Chapter 2
+**Full name:** Not given
 
 ---
 
 ## Physical
 
-Tall and loud in a way that makes rooms feel smaller. Physically expressive — leans over to read people's screens, signals approval across a pub from the other side of a table, stands when someone he owes arrives.
+Tall and loud in a way that makes rooms feel smaller. Physically expressive — leans over to read people's screens, signals approval from across a pub, stands when someone he owes arrives.
 
 ---
 
@@ -17,11 +18,15 @@ Warm, loyal, attentive. He listens with his whole face — not performing attent
 
 He is not malicious. He is someone who improvises badly under pressure and then does the real work to correct it — not for credit, but because he knows the difference between performing accountability and actually doing it.
 
+By the end of the story he is still carrying something. The card he sent after the engagement was longer than expected. Maya read it twice and kept it. It was a beginning, not a resolution.
+
 ---
 
 ## Interior Life
 
 Jake thinks of himself as a protective friend. When that instinct is well-calibrated, it is one of his best qualities. When it is badly calibrated, he hands his discomfort to someone else and calls it care. He has enough self-awareness to know when he has done this after the fact, and to sit with it without flinching away.
+
+The thing he is still carrying at the wedding is not fully named on the page. He sits near the back, slightly apart.
 
 ---
 
@@ -35,9 +40,9 @@ Direct, occasionally to the point of bluntness. He narrates things like a commen
 
 - **Ethan Calloway** — His closest friend, eight years. He is the first person Ethan tells things to.
 - **Priya** — His partner. Her opinions are extensive and largely correct, which he freely acknowledges.
-- **Maya Vasquez** — He owes her something, and he pays it directly rather than through Ethan.
-- **Rachel Calloway** — She is entitled to call him to account and does so. He respects it.
+- **Maya Vasquez** — He owes her something. He has begun paying it. He has not finished.
+- **Rachel Calloway** — She called him to account directly. He respects it.
 
 ---
 
-*Last updated: Chapter 11*
+*Last updated: Chapter 30*
