@@ -1,4 +1,4 @@
-# Chapter 12: Questions and Acceptance
+# Chapter 10: Questions and Acceptance
 
 He asked on a Sunday.
 

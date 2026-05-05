@@ -1,4 +1,4 @@
-# Chapter 21: The Photo Shoot
+# Chapter 19: The Photo Shoot
 
 Michelle Adams arrived at the museum's photography studio at eight in the morning, two hours before Maya and Ethan were scheduled to arrive. She liked the quiet before a shoot — time to check her equipment, test the lighting, settle into the space.
 

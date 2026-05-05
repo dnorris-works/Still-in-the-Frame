@@ -1,4 +1,4 @@
-# Chapter 13: The Gallery Opening
+# Chapter 11: The Gallery Opening
 
 The show was called *Concealed/Revealed*, which had been Maya's idea and which she had not fully thought through until she was standing in the middle of the gallery at seven-fifteen on a Thursday evening in February — four months after the museum, three months after she had first proposed the show to Celia — watching people arrive, and realising she had spent three months curating an exhibition about herself.
 

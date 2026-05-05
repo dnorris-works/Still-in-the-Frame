@@ -1,4 +1,4 @@
-# Chapter 8: Two Days After
+# Chapter 7: Two Days After
 
 The pub was Jake's idea, which meant it was louder than necessary and had an excellent jukebox.
 

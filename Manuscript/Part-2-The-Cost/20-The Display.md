@@ -1,4 +1,4 @@
-# Chapter 22: The Display
+# Chapter 20: The Display
 
 The exhibition opened on a Thursday evening in March, spring light slanting through the museum's tall windows as guests arrived for the opening reception.
 

@@ -1,4 +1,4 @@
-# Chapter 17: Ordinary Days
+# Chapter 15: Ordinary Days
 
 November arrived without ceremony and the city adjusted — heavier coats, earlier dark, the particular quality of light through cloud that made everything look considered. Maya adjusted with it.
 

@@ -1,4 +1,4 @@
-# Chapter 25: The Darkroom
+# Chapter 26: The Darkroom
 
 He went in on Monday morning, before she was up.
 

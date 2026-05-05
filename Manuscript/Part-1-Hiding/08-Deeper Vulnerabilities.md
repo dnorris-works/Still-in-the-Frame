@@ -1,4 +1,4 @@
-# Chapter 10: Deeper Vulnerabilities
+# Chapter 8: Deeper Vulnerabilities
 
 She cancelled on a Wednesday, which she never did.
 

@@ -1,4 +1,4 @@
-# Chapter 29: Rachel and Zoe
+# Chapter 30: Rachel and Zoe
 
 Rachel called the morning after the café.
 

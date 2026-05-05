@@ -1,4 +1,4 @@
-# Chapter 11: Rachel
+# Chapter 9: Rachel
 
 Rachel arrived on the Friday night train with a bag that was too large for a weekend and a personality that filled a room before she'd taken off her coat.
 
