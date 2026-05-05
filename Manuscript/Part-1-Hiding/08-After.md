@@ -2,15 +2,15 @@
 
 The pub was Jake's idea, which meant it was louder than necessary and had an excellent jukebox.
 
-It was two days after. Two days since his house, his couch, his arms around her while the world declined to end. One of those days had been silence, and then a doorbell, and then his arms again — tighter this time, the holding of someone who had understood what he nearly lost. She had woken this morning with the particular feeling of someone who has survived something they had not expected to survive and survived it twice.
+It was two days after. Two days since Ethan's house, his couch, his arms around her while the world declined to end. She had woken this morning with the particular feeling of someone who has survived something they had not expected to survive — not trauma, but joy. The complete acceptance of being known.
 
-Zoe knew everything. She'd told her the parts Zoe hadn't seen — the night before, the silence, what she'd sent — and Zoe had filled in the rest herself, having opened the door and then quietly left. She had cried and delivered her verdict on Jake — well-meaning idiot, in terms that required no further elaboration — and that had been that. But Zoe knowing was one thing. This table was another.
+Zoe knew everything. She'd told her about the night, about Ethan's response, about waking up in his bed and making breakfast together. Zoe had cried and delivered her verdict — "About time," in terms that required no further elaboration — and that had been that. But Zoe knowing was one thing. This table was another.
 
 She sat across from Jake and Priya in a pub that smelled of old wood and good beer, and Ethan was beside her with his hand resting near hers on the table, and nobody here knew what had happened two nights ago, and she found she didn't mind. She could carry it quietly in this room. It was still hers.
 
 Priya was an environmental lawyer with strong opinions about most things and no patience for anyone who didn't bring their full self to a conversation. Within four minutes she and Maya were deep in something about urban water rights that had left both Jake and Ethan behind.
 
-Jake was being warm. More warm than usual, which Ethan noticed and which Maya did not, and which Jake was probably not even fully aware of — the particular warmth of a person who knows they owe something and is paying it in the currency available.
+Jake was being his usual warm self, which Maya appreciated more than she'd expected to.
 
 "She's different," Jake said to Ethan, under the music.
 
@@ -55,14 +55,6 @@ She laughed. "I want you to meet Zoe."
 She looked at him steadily. "You probably will," she said.
 
 On the way home she took his hand on the street without any of the deliberateness of the hiking trail. Just reached over and took it. He held on.
-
----
-
-Rachel texted Jake that night.
-
-*I know what you said to him. I need you to understand something: she has been through things you and I will never fully understand, and she let him in anyway. That took more courage than either of us will ever have to find. You nearly took that from both of them. I'm not going to stay angry about it because I can see you already know. But I needed to say it to you directly.*
-
-Jake read it twice. He didn't reply. He set his phone down and sat with it for a while, which was the only honest response available to him.
 
 ---
 
