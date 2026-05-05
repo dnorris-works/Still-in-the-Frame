@@ -52,7 +52,7 @@ A running record of where we are in building the bible, what has been read and p
 | 21 | 18 | Breaking Point | Belongs immediately after Under Threat (ch. 17) — four days later, as stated in the text |
 | 22 | 19 | The Church | Follows Breaking Point; Maya's first step toward faith after the fear is named |
 | 23 | 20 | The Group | Follows The Church; Nancy's invitation comes directly from the Sunday service |
-| 18 | 21 | The Proposal (museum) | Must follow The Group — chapter references "Nancy's group" as already known |
+| 18 | 21 | The Pitch (formerly The Proposal) | Must follow The Group — chapter references "Nancy's group" as already known |
 | 19 | 22 | The Photo Shoot | Follows the museum pitch |
 | 20 | 23 | The Display | Follows the shoot; the museum opening |
 

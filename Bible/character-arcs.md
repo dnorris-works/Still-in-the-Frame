@@ -30,7 +30,7 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | 18 | Maya calls from the hallway floor; he arrives in eighteen minutes; holds her; admits he is not as steady as he looks; says "I chose you and I've kept choosing you" |
 | 19 | Attends Riverside Community Church with Maya for the first time; is very still during the sermon; meets Nancy Griffin |
 | 20 | Receives Maya's text "I found my people"; replies "Come over. Bring whatever you're carrying" |
-| 21 | Pitches the intersex exhibition to Dr. Harrison alongside Maya; squeezes her fingers; opens the door |
+| 21 | Pitches the intersex exhibition to Dr. Harrison alongside Maya; squeezes her fingers; opens the door (The Pitch) |
 | 22 | Documents the photo shoot from outside the studio; Michelle Adams directs the three-image series |
 | 23 | At the museum exhibition opening; stands with Maya when Bret arrives; watches Bret leave without writing |
 | 24 | Morning after the opening; photographs Maya at the kitchen table; shows her the opening photographs on his laptop; they walk past the church; she says she wants to go back; he says "tell me when" |
@@ -67,7 +67,7 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | 18 | Breaks down on the hallway floor alone; calls Ethan; receives him; hears him admit he is not as steady as he looks; they plan the print selection; opens the thesis conclusion the next morning |
 | 19 | Goes to Riverside Community Church with Ethan; hears Pastor James's sermon; meets Nancy Griffin |
 | 20 | Goes alone to the Wednesday group at St. Anne's; introduces herself; listens; says "I'm trying to tell more"; receives Diane's "there's room"; texts Ethan "I found my people" |
-| 21 | Pitches the intersex exhibition to Dr. Harrison; names her diagnosis in an institutional setting; laughs outside afterward |
+| 21 | Pitches the intersex exhibition to Dr. Harrison; names her diagnosis in an institutional setting; laughs outside afterward (The Pitch) |
 | 22 | Present for the photo shoot; the three-image series with Michelle Adams; complete visibility |
 | 23 | Museum exhibition opening night (intersex portraits); Bret comes and leaves without writing |
 | 24 | Morning after; coffee in his kitchen; sees her own face in his opening photographs without flinching; walks past the church; says she wants to go back |

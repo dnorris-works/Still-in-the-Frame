@@ -205,7 +205,7 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 - Jordan takes her hand: "You were never alone. Not once."
 - After: Maya texts Ethan — "I found my people."
 
-### Ch 21–23: The Exhibition — Proposal, Shoot, Display
+### Ch 21: The Pitch
 - The Hidden Gallery; Maya as artist, not curator — her complete self on the walls
 - She and Ethan choose every image together; she controls what is shown
 - Opening night: people moved, celebrating, present — including Dr. Bowen, gallery contacts, the people Bret could have poisoned

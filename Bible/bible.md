@@ -171,7 +171,7 @@ Facts extracted from the manuscript. Organised by category.
 | Four days after | Maya's breaking point; hallway floor (Ch. 18) |
 | Sunday | First time at Riverside Community Church (Ch. 19) |
 | Wednesday (next) | Maya attends the support group alone (Ch. 20) |
-| Museum meeting | Exhibition proposal to Dr. Harrison (Ch. 21) |
+| Museum meeting | Exhibition proposal to Dr. Harrison (Ch. 21 — The Pitch) |
 | December 15 | Photo shoot with Michelle Adams (Ch. 22) |
 | March, Thursday | Portrait exhibition opens; Bret comes and leaves without writing (Ch. 23) |
 | Three Saturdays (spring) | Selecting the 42 photographs for the Hidden Gallery show (Ch. 24) |
