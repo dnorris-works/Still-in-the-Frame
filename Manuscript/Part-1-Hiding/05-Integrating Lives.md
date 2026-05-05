@@ -166,11 +166,13 @@ He looked. Not gaping, not performing shock — just looking, with the same qual
 
 He reached out and touched her. His hand warm and unhurried.
 
-"That's very interesting," he said quietly.
+The texture was different than he'd expected — softer, warmer. Not strange. Just... her. Another part of her to know, to learn. He found himself genuinely curious, not out of shock but out of the same fascination he'd felt watching her study a painting. This was Maya. All of Maya.
 
-He pulled his hand back slightly. Then, after a moment, looked up at her.
+"That's very interesting," he said quietly. And he meant it — not as politeness, but as genuine appreciation. Like discovering an unexpected detail in a photograph that made the whole image more compelling.
 
-"Is it okay if I hold it?"
+He pulled his hand back slightly, already missing the contact. Then, after a moment, looked up at her. Her eyes were wide, waiting.
+
+"Is it okay if I hold it?" He asked because he wanted to. Because the brief touch had only made him want more of her, not less.
 
 Something in her chest that had been braced for years — braced since she was seventeen, since Bret, since every prayer she'd sent up and gotten silence back — simply let go.
 
@@ -178,13 +180,15 @@ Something in her chest that had been braced for years — braced since she was s
 
 He held it.
 
-Gently. With both hands. The way he held a print he was still deciding about — present, careful, not in any hurry to be done.
+Gently. With both hands. The way he held a print he was still deciding about — present, careful, not in any hurry to be done. But this wasn't a photograph. This was Maya, warm and real and trusting him with something no one else had been allowed to touch. The weight of that trust settled in his chest alongside something else: desire. Real desire. Not performance, not accommodation. He wanted this part of her the same way he wanted the rest.
 
 She watched his face. She had been watching for the thing that would end her — the recoil, the revision, the moment he understood what he was holding and chose differently.
 
 It didn't come.
 
-What came instead was his eyes moving up to hers. Steady. Dark. The same eyes that had looked at her across a gallery and decided she was worth approaching.
+What came instead was his thumb moving gently across her skin, a small unconscious caress that had nothing to do with curiosity and everything to do with affection. Then his eyes moving up to hers. Steady. Dark. The same eyes that had looked at her across a gallery and decided she was worth approaching. 
+
+Except now they held something else — a heat that had nothing to do with novelty and everything to do with Maya herself.
 
 "Come here," he said.
 
@@ -202,7 +206,15 @@ He moved to her breast. She arched into him and made a sound she didn't try to m
 
 He didn't navigate around anything.
 
-His mouth found her cock first. Not as a concession. Not carefully, not with the particular deliberateness of a man doing something brave. Just — wanting it. His lips and his tongue, unhurried, the same attention he had given her breast, and she made a sound she had never made in her life and grabbed the cushion with both hands because she had nothing else to hold onto. He took his time. He was in no hurry. When she finally said his name he looked up at her — eyes dark, completely present — and smiled.
+His mouth found her secret first. Not as a concession. Not carefully, not with the particular deliberateness of a man doing something brave. Just — wanting it.
+
+The taste of her, the way she responded — it was intoxicating in the way that only Maya ever was. He had always been drawn to the hidden details, the things others overlooked. Here was the most hidden part of her, and it was beautiful. Not despite anything, not requiring acceptance. Beautiful because it was hers.
+
+His lips and his tongue, unhurried, the same attention he had given her breast, and she made a sound she had never made in her life and grabbed the cushion with both hands because she had nothing else to hold onto. He felt the sound as much as heard it — felt it in the way she moved under him, the way her breath caught. 
+
+He took his time. He was in no hurry. This was a revelation worth savoring — not just her body, but her trust, her response, the way she let herself be this vulnerable with him. When she finally said his name he looked up at her — eyes dark, completely present — and smiled. 
+
+"I love the way you taste," he said quietly against her skin. Because he did. Because she needed to know it wasn't tolerance.
 
 Then he moved lower and took her in his mouth where she was wet, and she gasped and pressed her hand over her own mouth and he reached up and moved it away. *Don't*, he said against her, and she didn't.
 
@@ -222,8 +234,14 @@ After, they lay in the low light of the room, her head on his chest, his arm aro
 
 She thought: *no one has ever touched me like that. Like all of me was the point. Like there was no part of me that needed managing.*
 
+What she didn't know — what she couldn't see from where she lay — was that Ethan was thinking the exact same thing. That he had never touched anyone like this before either. Not just physically, though that was true. But he had never before understood what it meant to love someone's body not despite its differences but because of them. Because those differences were Maya's, and Maya was perfect exactly as she was.
+
 She thought: *I have been so afraid. For so long.*
 
 She pressed her hand flat over his chest. His heart, slow now, under her palm.
 
-He covered it with his own without saying anything.
+He covered it with his own without saying anything. But his mind was full of words he didn't know how to say yet. Words about how right this felt. How every part of her — even the parts she had been taught to hide — made him want her more, not less. How loving her completely had nothing to do with accepting her differences and everything to do with celebrating them.
+
+He pressed his lips to the top of her head and thought: *I want to remember exactly how this feels. Her weight against me. Her trust. The way she finally stopped hiding.*
+
+He thought: *I want to spend the rest of my life making sure she never has to hide again.*
