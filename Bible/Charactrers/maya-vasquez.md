@@ -16,7 +16,7 @@ Maya is not defined by her condition. She is defined by what she does with it: s
 
 ## Physical
 
-Presents entirely as a woman — there is nothing visually unusual about her. Dark jeans, consistently. Her hair loose or pulled back, a few strands at the side of her face. Her head tilts slightly when she is thinking. She holds a pen she is not using. She moves through galleries with her hands behind her back, the way she moves through anything she is trying to understand properly. Physically fit; has hiked since her grandmother took her to the hills as a child; her boots are worn in ways new boots never are. The wedding dress is simple — the colour of winter light, no architecture, no structure designed to present a version.
+Presents entirely as a woman — there is nothing visually unusual about her. About 3 inches shorter than Ethan. Dark jeans, consistently. Her hair loose or pulled back, a few strands at the side of her face. Her head tilts slightly when she is thinking. She holds a pen she is not using. She moves through galleries with her hands behind her back, the way she moves through anything she is trying to understand properly. Physically fit; has hiked since her grandmother took her to the hills as a child; her boots are worn in ways new boots never are. The wedding dress is simple — the colour of winter light, no architecture, no structure designed to present a version.
 
 ---
 
