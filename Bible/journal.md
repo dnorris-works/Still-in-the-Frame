@@ -23,25 +23,48 @@ A running record of where we are in building the bible, what has been read and p
 
 ## Session 2
 
-**Chapters read:** 10–30 (Part 2: The Cost + Part 3: Full Colour) — manuscript complete
-**Bible updated:** Full rewrite covering all 30 chapters
+**Chapters read:** 10–31 (Part 2: The Cost + Part 3: Full Colour) — manuscript complete
+**Bible updated:** Full rewrite covering all 31 chapters
 **Character profiles updated:** ethan-calloway.md, maya-vasquez.md, bret.md, jake.md, zoe.md, rachel.md, dr-bowen.md
 **New profiles created:** eileen.md, nancy-griffin.md, pastor-james.md, celia.md, marcus.md, jordan.md
-**Character arcs:** Updated to cover all 30 chapters
+**Character arcs:** Updated to cover all 31 chapters
 **Open questions:** Most resolved — see updated section below
 
 **Part structure:**
 - Part 1 — Hiding (Chapters 1–9) ✅ COMPLETE
-- Part 2 — The Cost (Chapters 10–23) ✅ COMPLETE
-- Part 3 — Full Colour (Chapters 24–30) ✅ COMPLETE
+- Part 2 — The Cost (Chapters 10–24) ✅ COMPLETE
+- Part 3 — Full Colour (Chapters 25–31) ✅ COMPLETE
+
+---
+
+## Session 3
+
+**Task:** Chapter reordering — Part 2 only
+**Files changed:** All 9 affected manuscript files (renamed + internal headings updated); bible.md, outline-master.md, character-arcs.md, outline-characters.md, journal.md
+
+**What moved and why:**
+
+| Old # | New # | Chapter | Reason |
+|---|---|---|---|
+| 15 | 13 | Ordinary Days | November settling belongs before the faith crisis and Bowen supervision, not after |
+| 13 | 14 | The Faith Crisis | Follows naturally from the November context established in ch. 13 |
+| 14 | 15 | Dr. Bowen | Follows the faith crisis; Bowen mentions the theologian who resonates with the faith thread |
+| 21 | 18 | Breaking Point | Belongs immediately after Under Threat (ch. 17) — four days later, as stated in the text |
+| 22 | 19 | The Church | Follows Breaking Point; Maya's first step toward faith after the fear is named |
+| 23 | 20 | The Group | Follows The Church; Nancy's invitation comes directly from the Sunday service |
+| 18 | 21 | The Proposal (museum) | Must follow The Group — chapter references "Nancy's group" as already known |
+| 19 | 22 | The Photo Shoot | Follows the museum pitch |
+| 20 | 23 | The Display | Follows the shoot; the museum opening |
+
+Parts 1 and 3 unchanged. Chapter 24 (Fully Seen) unchanged.
 
 ---
 
 ## ⚠️ Manuscript Flags — All Resolved
 
-1. **Bret's surname** — confirmed Reynolds. Ch. 18 corrected in manuscript.
-2. **Dr. Bowen's gender** — confirmed female (she/her). Chs. 16 and 26 corrected in manuscript.
-3. **Accidental meta-reference in Ch. 30** — removed. Replaced with "It was not the full reckoning she had once imagined."
+1. **Bret's surname** — confirmed Reynolds. Ch. 16 corrected in manuscript.
+2. **Dr. Bowen's gender** — confirmed female (she/her). Chs. 15 and 27 corrected in manuscript.
+3. **Accidental meta-reference in Ch. 31** — removed. Replaced with "It was not the full reckoning she had once imagined."
 
 ---
 

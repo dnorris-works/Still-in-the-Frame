@@ -2,7 +2,7 @@
 
 Facts extracted from the manuscript. Organised by category.
 
-**Coverage:** Complete — Chapters 1–30
+**Coverage:** Complete — Chapters 1–31
 
 ---
 
@@ -22,7 +22,7 @@ Facts extracted from the manuscript. Organised by category.
 - **Profession:** Part-time gallery guide; PhD candidate; curator
 - **Thesis:** *Hidden Narratives in Abstract Expressionism* — submitted April; defence panel includes Hartley from Edinburgh
 - **Medical:** CAIS; cannot get pregnant; mother was told at her birth; Maya found the term herself at sixteen
-- **Faith arc:** Collapsed after Bret; grandmother's faith held as a reference; Post-it note (Psalm 139:14) carried since age 16; faith crisis at Riverside Community Church door (November); first service with Ethan (Ch. 21); joins Nancy's Wednesday group; married at the church
+- **Faith arc:** Collapsed after Bret; grandmother's faith held as a reference; Post-it note (Psalm 139:14) carried since age 16; faith crisis at Riverside Community Church door (November, Ch. 14); first service with Ethan (Ch. 19); joins Nancy's Wednesday group (Ch. 20); married at the church
 - **See full profile:** `maya-vasquez.md`
 
 ### Rachel Calloway
@@ -163,17 +163,19 @@ Facts extracted from the manuscript. Organised by category.
 | Sunday (later) | Maya tells Ethan the full Bret account |
 | February | *Concealed/Revealed* exhibition opens |
 | February evening | Maya's flashback; midnight call |
-| November Wednesday | Faith crisis; hand on the church door |
-| One Thursday | Bowen supervision; Douglas Reid mention |
-| November | Ordinary days; the kitchen table dinner |
-| Gallery opening (winter) | *Drawn Inward* — Bret appears; Maya confronts |
-| Winter night | Planning the spring show |
-| Four days after | Maya's breaking point; hallway floor |
-| Sunday | First time at Riverside Community Church |
-| Wednesday (next) | Maya attends the support group alone |
-| Three Saturdays | Selecting the 42 photographs |
-| April, Friday | Portrait exhibition opens; Bret comes and leaves without writing |
-| April, Saturday morning | Morning after |
+| November Wednesday | Faith crisis; hand on the church door (Ch. 14) |
+| One Thursday | Bowen supervision; Douglas Reid mention (Ch. 15) |
+| November | Ordinary days; the kitchen table dinner (Ch. 13) |
+| Gallery opening (winter) | *Drawn Inward* — Bret appears; Maya confronts (Ch. 16) |
+| Winter night | Planning the spring show (Ch. 17) |
+| Four days after | Maya's breaking point; hallway floor (Ch. 18) |
+| Sunday | First time at Riverside Community Church (Ch. 19) |
+| Wednesday (next) | Maya attends the support group alone (Ch. 20) |
+| Museum meeting | Exhibition proposal to Dr. Harrison (Ch. 21) |
+| December 15 | Photo shoot with Michelle Adams (Ch. 22) |
+| March, Thursday | Portrait exhibition opens; Bret comes and leaves without writing (Ch. 23) |
+| Three Saturdays (spring) | Selecting the 42 photographs for the Hidden Gallery show (Ch. 24) |
+| April, Friday | Hidden Gallery portrait opening; fully seen (Ch. 24) |
 | Wednesday in April | Thesis submitted |
 | Trail (Saturday, spring) | Proposal |
 | Café on Millbank | Eileen told; the sentence that begins |

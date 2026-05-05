@@ -2,7 +2,7 @@
 
 A record of what each character does, chapter by chapter. Updated as chapters are read.
 
-**Coverage:** Chapters 1–30 (complete)
+**Coverage:** Chapters 1–31 (complete)
 
 ---
 
@@ -22,16 +22,17 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | 10 | Goes to Maya's apartment when she cancels; brings soup; reads to her; stays the day; three weeks later proposes the portrait series; photographs her at four locations |
 | 11 | Hosts brunch with Maya and Rachel; takes a call from Jake; Rachel reports what she sees in him |
 | 12 | Asks Maya about her history; listens to the full Bret account; hears she cannot get pregnant; says "okay"; offers a frame for God's role; she walks out; opens the door when she returns; makes tea |
-| 13 | Documents the Concealed/Revealed opening with his camera; stands with Maya at the Psalm 139 piece |
-| 14 | Answers Maya's midnight call; stays on the line without speaking; says "go to sleep, Maya" |
-| 16 | Setting up the Hargreaves installation; Maya finds him in Gallery Four; she tells him the thesis is about herself; he stands beside her and doesn't speak; she takes his hand |
-| 17 | Ordinary evenings; the kitchen table dinner; the deadline misunderstanding; he notes when Maya shuts a conversation down and names it gently; they repair it |
-| 18 | At the gallery opening; sees Maya's face when Bret arrives; stays close without hovering; tells Bret: "You won't do that"; drives her home |
-| 19 | Maya returns to his apartment; they plan the spring portrait show together; he tells her the archive of portraits exists; she says "ask Celia" |
-| 20 | Maya calls from the hallway floor; he arrives in eighteen minutes; holds her; admits he is not as steady as he looks; says "I chose you and I've kept choosing you" |
-| 21 | Attends Riverside Community Church with Maya for the first time; is very still during the sermon; meets Nancy Griffin |
-| 22 | Receives Maya's text "I found my people"; replies "Come over. Bring whatever you're carrying" |
-| 23 | Three Saturdays choosing the 42 photographs with Maya; she writes the exhibition notes; he documents the opening; stands with Maya when Bret arrives; watches Bret leave without writing |
+| 13 | Ordinary evenings; the kitchen table dinner; the deadline misunderstanding; he notes when Maya shuts a conversation down and names it gently; they repair it |
+| 14 | (Faith Crisis — Maya's chapter; Ethan not present) |
+| 15 | Setting up the Hargreaves installation; Maya finds him in Gallery Four; she tells him the thesis is about herself; he stands beside her and doesn't speak; she takes his hand |
+| 16 | At the gallery opening; sees Maya's face when Bret arrives; stays close without hovering; tells Bret: "You won't do that"; drives her home |
+| 17 | Maya returns to his apartment; they plan the spring portrait show together; he tells her the archive of portraits exists; she says "ask Celia" |
+| 18 | Maya calls from the hallway floor; he arrives in eighteen minutes; holds her; admits he is not as steady as he looks; says "I chose you and I've kept choosing you" |
+| 19 | Attends Riverside Community Church with Maya for the first time; is very still during the sermon; meets Nancy Griffin |
+| 20 | Receives Maya's text "I found my people"; replies "Come over. Bring whatever you're carrying" |
+| 21 | Pitches the intersex exhibition to Dr. Harrison alongside Maya; squeezes her fingers; opens the door |
+| 22 | Documents the photo shoot from outside the studio; Michelle Adams directs the three-image series |
+| 23 | At the museum exhibition opening; stands with Maya when Bret arrives; watches Bret leave without writing |
 | 24 | Morning after the opening; photographs Maya at the kitchen table; shows her the opening photographs on his laptop; they walk past the church; she says she wants to go back; he says "tell me when" |
 | 25 | Alone in the darkroom; develops the opening photographs; thinks about his mother; looks at the ring in the darkroom drawer; is ready; waits for the right moment |
 | 26 | Ordinary days post-exhibition; kitchen table conversation about the next project; puts his hand over hers |
@@ -58,17 +59,17 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | 10 | Cancels a Wednesday; lets Ethan in and take care of her; three weeks later agrees to the portrait series; the four-location shoot; says "you make me feel beautiful" |
 | 11 | Meets Rachel at brunch; receives Rachel's separate coffee invitation; receives "I'm glad it's you. Properly glad"; files the detail about the church |
 | 12 | Tells Ethan the full Bret account on a Sunday; tells him she cannot get pregnant; walks out when he offers a theological frame; returns; they sit in the imperfect quiet |
-| 13 | Curates the Concealed/Revealed show; gives the gallery talk without notes; finds the Psalm 139 piece; stands in front of it with Ethan; says "I've already chosen" |
-| 14 | Home alone after the opening; the flashback to Bret's kitchen; calls Ethan at midnight; stays on the phone; holds the thought at the end |
-| 15 | Faith crisis; walks past Riverside Community Church and puts her hand on the door but doesn't go in; finds the Post-it in the drawer |
-| 16 | Supervision with Bowen; Bowen asks what the thesis is actually arguing; Maya says it plainly; Bowen tells her about Douglas Reid; Maya walks to the museum and tells Ethan |
-| 17 | November ordinary days; the kitchen table dinner at his house; the deadline misunderstanding; she opens the bookmarks folder that night |
-| 18 | The Drawn Inward opening; Bret appears; she finishes her conversation and crosses the room; faces Bret; tells him she will disclose their intimacy if he moves against her; Ethan beside her without hovering |
-| 19 | Returns to Ethan's after the opening; names her fear; asks if he has thought about the hard version; they plan the spring show |
-| 20 | Breaks down on the hallway floor alone; calls Ethan; receives him; hears him admit he is not as steady as he looks; they plan the print selection; wakes the next morning and opens the thesis conclusion |
-| 21 | Goes to Riverside Community Church with Ethan; hears Pastor James's sermon; meets Nancy Griffin |
-| 22 | Goes alone to the Wednesday group at St. Anne's; introduces herself; listens; says "I'm trying to tell more"; receives Diane's "there's room"; texts Ethan "I found my people" |
-| 23 | Three Saturdays choosing photographs; selects the body photograph from the separate folder; writes exhibition notes naming herself as intersex; the April opening; Bowen's verdict; Zoe's arms; Rachel; Bret comes and leaves without writing; "it's done" |
+| 13 | A stretch of regular life — November; campus, museum, meals; ease settling; reads the theologian's paper and moves it to an unnamed folder |
+| 14 | Home alone after the opening; the flashback to Bret's kitchen; calls Ethan at midnight; stays on the phone; holds the thought at the end — AND faith crisis: walks past Riverside Community Church, puts her hand on the door, finds the Post-it in the drawer |
+| 15 | Supervision with Bowen; Bowen asks what the thesis is actually arguing; Maya says it plainly; Bowen tells her about Douglas Reid; Maya walks to the museum and tells Ethan |
+| 16 | The *Drawn Inward* opening; Bret appears; she finishes her conversation and crosses the room; faces Bret; tells him she will disclose their intimacy if he moves against her; Ethan beside her |
+| 17 | Returns to Ethan's after the opening; names her fear; asks if he has thought about the hard version; they plan the spring show |
+| 18 | Breaks down on the hallway floor alone; calls Ethan; receives him; hears him admit he is not as steady as he looks; they plan the print selection; opens the thesis conclusion the next morning |
+| 19 | Goes to Riverside Community Church with Ethan; hears Pastor James's sermon; meets Nancy Griffin |
+| 20 | Goes alone to the Wednesday group at St. Anne's; introduces herself; listens; says "I'm trying to tell more"; receives Diane's "there's room"; texts Ethan "I found my people" |
+| 21 | Pitches the intersex exhibition to Dr. Harrison; names her diagnosis in an institutional setting; laughs outside afterward |
+| 22 | Present for the photo shoot; the three-image series with Michelle Adams; complete visibility |
+| 23 | Museum exhibition opening night (intersex portraits); Bret comes and leaves without writing |
 | 24 | Morning after; coffee in his kitchen; sees her own face in his opening photographs without flinching; walks past the church; says she wants to go back |
 | 25 | (Chapter is Ethan in the darkroom — Maya asleep) |
 | 26 | Submits the thesis; Zoe tells her she finally looks like herself; Bowen asks "and now?"; ordinary life; the kitchen table; opens the bookmarks folder |
@@ -87,7 +88,7 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | 3 | Notices Maya has been humming for three days; the quiet squeeze at the sink |
 | 6 | Kitchen floor with bad wine; listens to the full account; delivers her verdict |
 | 7 | Lets Ethan in; picks up her keys; leaves without being asked |
-| 13 | At the gallery opening; mouths something at Maya from the back |
+| 11 | At the gallery opening; mouths something at Maya from the back |
 | 26 | Home when Maya returns after submitting the thesis; tells her she finally looks like herself |
 | 29 | Told on Friday night; sits on the kitchen floor; says "I kept waiting for you to let him"; the wine and the two hours |
 | 30 | Maya's attendant at the wedding |
@@ -102,7 +103,7 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | 7 | The question: "Did you enjoy it?" — raises the bisexual possibility; causes Ethan's silence |
 | 8 | Pub with Ethan, Maya, Priya; warm approval; Rachel's text arrives that night |
 | 9 | Meets Maya alone; gives the full apology without defence; receives her account; hugs her outside |
-| 17 | Pub with Ethan and Maya, Tuesday evening; says to Ethan: "The best part of him isn't being saved anymore" |
+| 13 | Pub with Ethan and Maya, Tuesday evening; says to Ethan: "The best part of him isn't being saved anymore" |
 | 30 | At the wedding near the back, slightly apart, still carrying something; he sent a card after the engagement — Maya kept it |
 
 ---
@@ -132,7 +133,7 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | Ch. | What happens |
 |---|---|
 | 8 | Second row at the thesis presentation; the nod at the end |
-| 16 | Supervision: pushes Maya to articulate what the thesis is actually arguing; tells her about Douglas Reid; makes her write the sentence down |
+| 15 | Supervision: pushes Maya to articulate what the thesis is actually arguing; tells her about Douglas Reid; makes her write the sentence down |
 | 26 | Receives the hard copy of the thesis; "And now?"; "This is the right answer." Mentions the Edinburgh examiner. |
 | 30 | At the wedding; presses lips together and nods: the same nod as at the gallery |
 
@@ -158,8 +159,8 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 
 | Ch. | What happens |
 |---|---|
-| 21 | Approaches Maya after the morning service at Riverside Community Church; mentions the Wednesday group |
-| 22 | Convenes the group at St. Anne's basement |
+| 19 | Approaches Maya after the morning service at Riverside Community Church; mentions the Wednesday group |
+| 20 | Convenes the group at St. Anne's basement |
 | 30 | Co-officiates the wedding with Pastor James; her blessing: four sentences |
 
 ---
@@ -168,7 +169,7 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 
 | Ch. | What happens |
 |---|---|
-| 21 | Morning service; sermon on making and intention: "God does not make mistakes. God makes people." |
+| 19 | Morning service; sermon on making and intention: "God does not make mistakes. God makes people." |
 | 30 | Co-officiates the wedding; says the words |
 
 ---
@@ -177,9 +178,9 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 
 | Ch. | What happens |
 |---|---|
-| 13 | Running the Concealed/Revealed opening; confirms Maya is set for the talk |
-| 19 | Agrees to the spring portrait slot without hesitation |
-| 23 | Gives Maya the key after hours; turns up the work lights at the end of the opening |
+| 11 | Running the Concealed/Revealed opening; confirms Maya is set for the talk |
+| 17 | Agrees to the spring portrait slot without hesitation |
+| 23 | At the museum exhibition opening; turns up the work lights at the end |
 | 30 | Comes to look at the church space for the wedding photographs; measures in silence for four minutes |
 
 ---
@@ -188,7 +189,7 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 
 | Ch. | What happens |
 |---|---|
-| 13 | At the gallery opening; finds Maya first; both hands on her shoulders; "This is extraordinary. You are extraordinary." |
+| 11 | At the gallery opening; finds Maya first; both hands on her shoulders; "This is extraordinary. You are extraordinary." |
 | 30 | At the wedding; Zoe declines to defend his dancing |
 
 ---
@@ -197,8 +198,8 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 
 | Ch. | What happens |
 |---|---|
-| 22 | At the group; the deliberate stillness; tells Maya: "You were never alone. Not for a single day of it." |
-| 23 | Attends the gallery opening with Diane; stays until nearly the end |
+| 20 | At the group; the deliberate stillness; tells Maya: "You were never alone. Not for a single day of it." |
+| 24 | Attends the Hidden Gallery portrait opening with Diane; stays until nearly the end |
 | 30 | At the wedding with Diane |
 
 ---
@@ -207,6 +208,6 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 
 | Ch. | What happens |
 |---|---|
-| 18 | Appears at the Drawn Inward opening with press lanyard; approaches Maya after the room empties; "We should talk. About what I know."; Maya responds; Ethan speaks; Bret leaves |
-| 23 | Attends the spring portrait show; moves through the room; stands in front of the kitchen-table photograph for nearly two minutes; does not write in his notebook; leaves |
+| 16 | Appears at the *Drawn Inward* opening with press lanyard; approaches Maya after the room empties; "We should talk. About what I know."; Maya responds; Ethan speaks; Bret leaves |
+| 23 | Attends the museum intersex portrait opening; moves through the room; stands in front of the kitchen-table photograph for nearly two minutes; does not write in his notebook; leaves |
 

@@ -1,4 +1,4 @@
-# Chapter 13: The Faith Crisis
+# Chapter 14: The Faith Crisis
 
 It happened on a Wednesday, which felt wrong — like a crisis should at least have the decency to arrive on a significant day.
 
