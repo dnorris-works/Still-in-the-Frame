@@ -188,7 +188,7 @@ Another quiet beat.
 
 "Goodnight."
 
-He sat in the dark apartment after she hung up and thought about the space between people. What his mother used to say. Where all the real things happened. And about the careful way Maya had said *I used to* — like someone describing a country they'd been exiled from.
+He sat in the dark house after she hung up and thought about the space between people. What his mother used to say. Where all the real things happened. And about the careful way Maya had said *I used to* — like someone describing a country they'd been exiled from.
 
 ---
 

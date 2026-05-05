@@ -144,7 +144,7 @@ They started down an hour later, when the light began to shift and the air at al
 
 The descent was different from the climb — easier on the lungs, harder on the knees, and more conversational. Something about going down loosened the need to concentrate, freed up the part of the mind that talked. They moved through the pine section side by side where the trail allowed it, single file where it didn't, and the conversation arrived without effort.
 
-She talked about her grandmother. A retired schoolteacher from County Kilkenny who had moved to the city when Maya's mother was small and never quite adjusted to it, who kept a garden on a south-facing balcony and grew things that had no business growing in a city apartment and somehow managed it anyway. Who had died two years ago, quietly, in her sleep.
+She talked about her grandmother. A retired schoolteacher from County Kilkenny who had moved to the city when Maya's mother was small and never quite adjusted to it, who kept a garden on a south-facing balcony and grew things that had no business growing in the city and somehow managed it anyway. Who had died two years ago, quietly, in her sleep.
 
 "She sounds like someone who knew exactly who she was," Ethan said.
 

@@ -1,50 +1,68 @@
 # Chapter 6: The Morning After
 
-She woke in his bed.
+He woke to the smell of coffee and the quiet sounds of someone moving around downstairs.
 
-For a moment she didn't move — just lay still, orienting herself to the ceiling, the particular quality of light through curtains she didn't own, the smell of coffee already being made somewhere. The city was doing its early-morning thing outside. A pigeon. A delivery truck. Someone's alarm on a floor above.
+For a moment he didn't move — just lay still, orienting himself to the morning light through his bedroom curtains, the particular quality of quiet that meant Maya was still here, still in his house, making breakfast. The city was doing its early-morning thing outside. A pigeon. A delivery truck. The distant hum of traffic.
 
-She turned her head. His side of the bed was empty but recently left — the pillow still holding the shape of him, the warmth not entirely gone.
+He turned his head. Her side of the bed was empty but recently left — the pillow still holding the shape of her, the warmth not entirely gone.
 
-She lay there and took inventory the way she used to take inventory every morning: the familiar low-grade readiness for something to be wrong. The waiting for the ceiling to fall.
+He lay there for a moment, listening to the gentle sounds from the kitchen below, then got up and padded downstairs.
 
-It didn't fall.
+The kitchen was warm with morning light. Maya stood at the stove, stirring scrambled eggs, her hair still mussed from sleep. She had set the table with his plates — the ones that looked like they'd been chosen carefully, one at a time, over years. The coffee maker was already brewing.
 
-She thought: *he knows.* And then: *he knows everything.* And then, quieter, the thing underneath that: *he — he enjoyed everything. And I'm still here.*
+He appeared in the doorway in a grey t-shirt and bare feet, hair still mussed from sleep, and stopped when he saw her.
 
-She found him in the kitchen in a grey t-shirt and bare feet, leaning against the counter with his arms crossed, waiting for the coffee maker. He heard her and turned.
+"Good morning," she said.
 
-"Morning," he said. Just that, no performance in it.
+"Good morning, my love," he said, and crossed to her.
 
-"Morning."
+The words hung in the air between them — new words, words that meant their relationship had shifted overnight. He put his arms around her from behind, his chin resting on her shoulder, and she leaned back into him and thought: *this is what it feels like. To belong somewhere.*
 
-He poured a second mug without being asked. She sat at the kitchen table — the same table where his portrait prints were spread out last night, now cleared, her jacket folded over the back of a chair — and wrapped both hands around the mug and let the warmth move through her fingers.
+"You made breakfast," he said against her hair.
 
-He sat across from her. For a moment neither of them said anything. The coffee was good. Outside the window a cloud shifted and the kitchen filled briefly with low autumn sun.
+"I wanted to." She turned in his arms. "I wanted to do something for you."
 
-"How are you?" he said.
+He kissed her — brief, warm, completely certain. "Thank you."
 
-She looked at him. It was a real question, asked with real attention — not a pleasantry, not a preamble.
+They sat across from each other at the small table, the morning light soft through the windows, the city waking up outside.
 
-"I don't know yet," she said honestly. "I keep waiting for something to be different."
+She took a bite of toast, set it down, looked at him across the table.
 
-"Is it?"
+"Last night was full of firsts for me," she said quietly.
 
-"No." She shook her head slightly. "That's what I can't get over. Nothing is different."
+He waited.
 
-"Something is different."
+"The first time I let anyone see me completely. The first time anyone touched me the way you did. The first time I spent the night with someone." She paused. "The first time I felt completely loved."
 
-"What?"
+Something in his expression gentled.
 
-He looked at her steadily. "You're still here."
+"I am deeply grateful, Ethan," she said.
 
-She felt the back of her throat tighten. She nodded once, quickly, and looked at her coffee.
+But then her face changed. Her hands tightened around her coffee mug.
 
-"I want to ask you things," he said. "Not now if you don't want. But I want to understand. All of it."
+"But I have this fear that keeps nagging at me. Makes me nervous." She looked down. "That it was all too good to be true. I know that's a cliché. That maybe you were infatuated, and you'll wake up and tell me to leave, that you don't really love me."
+
+Her eyes filled. "After a lifetime of self-doubt and some self-loathing, I'm having a hard time believing something this good will last."
+
+He was quiet for a moment. Then he reached across the table and took both her hands in his.
+
+"Maya. Look at me."
+
+She met his eyes, tears still threatening.
+
+"I can tell you all day that I love you and want to be with you and anything else I can think to say. But it will be my goal and my honor to show you every day how true and how deep my love is growing for you, Maya. For you."
+
+She stopped crying. The tears didn't fall.
+
+"I truly love you, too, Ethan," she said. "Because of who and what you are."
+
+They sat in the quiet for a moment, hands still joined across the table.
+
+"I want to ask you things," he said eventually. "Not now if you don't want. But I want to understand. All of it."
 
 "You can ask."
 
-"Not yet." He turned his mug in his hands. "I just wanted you to know I'm going to. And that there's no version of what you tell me that changes this." He looked up. "That's not a promise I'm making because last night happened. It's just true."
+"Not yet." He squeezed her hands gently. "I just wanted you to know I'm going to. And that there's no version of what you tell me that changes this." He looked up. "That's not a promise I'm making because last night happened. It's just true."
 
 She looked at her hands around the mug. She had nothing to manage. No angle to hold, no version of herself to calibrate. He already knew, and he was sitting across from her in a grey t-shirt asking how she was, and there was nothing left to do but sit here and let that be what it was.
 
@@ -57,8 +75,6 @@ She looked at her hands around the mug. She had nothing to manage. No angle to h
 He was quiet for a moment. "I know," he said. "I'll make sure it's worth it."
 
 They sat until the coffee was gone and the morning had properly arrived.
-
-He made toast without asking if she wanted any, which was the right thing. She borrowed his toothbrush. He lent her a shirt to wear while hers dried — he'd put it in the wash sometime before she woke, which she understood without asking as a quiet act of care, the kind that didn't announce itself.
 
 She sat at his kitchen table in his shirt drinking his coffee and looked around the house in the morning light. It looked different in the day. The print on the living room wall — the woman at the window — had a quality in full light she hadn't clocked last night. Something in the set of the woman's shoulders. Not quite longing. More like the posture of someone in the middle of deciding.
 
@@ -92,15 +108,7 @@ He walked her to the door. She put her jacket on. He was leaning against the doo
 
 "Yeah."
 
-She didn't have the words for what she wanted to say. She stood in the doorway of his house in the morning light with everything changed and nothing broken and looked at him.
-
-"Thank you," she said.
-
-He shook his head slightly. "Don't thank me for that."
-
-"For what, then?"
-
-"Nothing." He kissed her — brief, warm, completely certain. "Go tell Zoe."
+He kissed her instead of waiting for her response — brief, warm, completely certain. "Go tell Zoe."
 
 She went.
 
@@ -152,7 +160,7 @@ That night, lying in her own bed, she thought about God.
 
 Not the God she'd stopped believing in the night Bret looked at her with disgust — the God she'd asked to make it okay and who'd apparently been elsewhere. She thought about the other version. The older version. The one her grandmother had believed in, quiet and certain, who she'd described not as a judge but as someone who already knew you completely and had decided you were worth knowing.
 
-Her grandmother had a phrase for it. She used it the way she used most things — without emphasis, as a plain fact: *He sees all of you, love. Not the parts you show. All of it.* She'd said it when Maya was twelve and scraped her knee on the church steps and was trying not to cry. Not as comfort, particularly. Just as information.
+Her grandmother had a phrase about God's love. She used it the way she used most things — without emphasis, as a plain fact: *He sees all of you, love. Not the parts you show. All of it.* She'd said it when Maya was twelve and scraped her knee on the church steps and was trying not to cry. Not as comfort, particularly. Just as theological information about how God sees everyone.
 
 She had been terrified her whole life of being known completely.
 

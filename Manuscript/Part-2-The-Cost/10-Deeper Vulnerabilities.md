@@ -24,7 +24,7 @@ She looked terrible. Her hair was loose and unwashed, pulled back unevenly. She 
 
 She stepped back.
 
-The apartment was dim, curtains half-drawn, the particular quiet of a space accommodating illness. He found the kitchen, ladled soup into a bowl he located after one wrong cupboard, and brought it to the couch where she'd resettled herself under a blanket.
+The house was dim, curtains half-drawn, the particular quiet of a space accommodating illness. He found the kitchen, ladled soup into a bowl he located after one wrong cupboard, and brought it to the couch where she'd resettled herself under a blanket.
 
 "Eat," he said.
 
@@ -60,7 +60,7 @@ He kept reading.
 
 Maya fell asleep somewhere in a discussion of light metering and the ethics of candid portraiture. He set the book down carefully and looked at her — her face completely unguarded in sleep, the lines she usually held in her expression gone, something younger and less defended underneath.
 
-He thought about the night at his apartment. What she'd shown him. The way she'd stood there with her whole self exposed and her face completely open, waiting.
+He thought about the night at his house. What she'd shown him. The way she'd stood there with her whole self exposed and her face completely open, waiting.
 
 What had happened between them was still in the developer. It required care.
 
@@ -152,7 +152,7 @@ He raised the camera again. The shutter clicked.
 
 He developed the portraits alone on a Sunday night.
 
-The apartment was quiet, the city doing its late-Sunday thing outside, and he worked through the process methodically — developer, stop, fixer, wash — his hands moving in the dark with the automatic ease of long practice while his mind did something else.
+The house was quiet, the city doing its late-Sunday thing outside, and he worked through the process methodically — developer, stop, fixer, wash — his hands moving in the dark with the automatic ease of long practice while his mind did something else.
 
 The images came up one by one in the tray.
 
