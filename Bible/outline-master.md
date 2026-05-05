@@ -75,35 +75,24 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 - Quiet aftermath: his arms, her face against his shoulder
 
 ### Ch 6: The Morning After
-- She wakes in his bed — taking inventory, waiting for something to be wrong. It isn't.
-- Coffee at the kitchen table; she looks around his apartment in the morning light — different in the day
-- He tells her he wants to ask things, but not yet: "There's no version of what you tell me that changes this."
+- **NEW**: Maya wakes, makes breakfast for them - showing new caretaking behavior
+- **"Good morning, my love"** moment - relationship has shifted overnight  
+- **Maya's vulnerability**: Lists her "firsts" and fears it's "too good to be true"
+- **Ethan's commitment**: "It will be my goal and my honor to show you every day how true and how deep my love is growing for you"
+- **Maya's reciprocation**: "I truly love you, too, Ethan. Because of who and what you are."
 - She says yes to exhibiting the portraits — the first time she has given anyone that
 - She tells Zoe on the kitchen floor with bad wine; Zoe cries first; the full weight of three years of watching Maya hide, finally lifting
 - Faith seed: Lying in her own bed that night, she thinks about her grandmother's God — not the one she lost, the older one. Her grandmother's phrase: "He sees all of you, love. Not the parts you show. All of it." She doesn't pray. But she lets the thought exist. That is further than she has come in years.
 
-### Ch 7: Three Days
-- Morning after the reveal, Ethan texts Jake: *something happened. can we talk?*
-- Jake's coffee-shop intervention — not malicious, genuinely confused and protective; plants the question of whether Ethan is bisexual; enough doubt that Ethan goes silent
-- Three days of silence. Maya reads it as Bret happening again — the floor, Zoe, the specific dread of an ending she has been through before
-- Third day: Ethan understands he has been sitting inside someone else's question. Gets up, puts his coat on, walks without texting. Maya makes the same decision simultaneously.
-- They see each other half a block apart. Both stop. Both walk fast. Meet in the middle of the pavement.
-- His eyes are wet — she has never seen that. He tells her what happened. She is fierce, not just hurt: *Don't just say I know. Say something real.*
-- He says: *I failed you. I wish I could be perfect for you.*
-- She asks for a promise. He gives the one he can honestly give: *I will always be someone you can trust. No more silence.*
-- She steps forward. He holds tighter than before.
-- Faith seed: Walking home alone afterward — not yet, just the two of them — she passes the church. The light is off. She notices that too.
-- Note: Jake's guilt carries into Ch 8. His reckoning with Maya is deferred to Part 2 or 3.
-
-### Ch 8: After
-- The pub with Jake and Priya — four days after the reveal, one day after the pavement
-- Jake is warmer than usual; Ethan notices; Maya does not
-- The table doesn't know; Ethan does; the reader does: dramatic irony working quietly
+### Ch 7: Two Days After
+- The pub with Jake and Priya — two days after the revelation and morning after scene
+- Jake is his usual warm self; Maya appreciates this more than expected
+- The table doesn't know what happened; Ethan and Maya can carry it quietly
 - Maya's thesis presentation; Ethan tracks down the time and shows up without being asked
 - Her Voss argument lands differently now — she has already chosen revelation; the audience doesn't know they're watching it
 - Faith seed: Mid-speech, the thought arrives: this is what I've been doing with God too. Unlike the secret, that door is still closed. But she noticed it.
 
-### Ch 9: Deeper Vulnerabilities
+### Ch 8: Deeper Vulnerabilities
 - Maya sick; Ethan arrives without being asked; stays; reads to her from art books
 - Zoe's single nod of approval from the doorway
 - Maya: "I haven't let anyone take care of me in years"
@@ -112,7 +101,7 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 - He develops the portraits alone — three of them extraordinary; writes the note: talk to Maya before any exhibition
 - Faith seed: In the darkroom, holding her portrait — the quality of her face in that half-second — he thinks: whoever made her, got her exactly right.
 
-### Ch 10: Rachel
+### Ch 9: Rachel
 - Rachel visits; brunch at Ethan's — she fills the room immediately, the opposite of Ethan's quiet
 - Rachel takes Maya for private coffee: "He's different since you. That's my brother."
 - Rachel gives her blessing — not a warning; she can see the change in Ethan and trusts it
@@ -124,21 +113,21 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 ---
 
 ## Part Two: The Cost of Hiding, The Price of Truth
-### Chapters 11-22
+### Chapters 8-19  
 ### Goal: Life after the reveal — the questions, the faith arc, the threat, the second exhibition. Maya moves from private acceptance to public truth. The faith wound closes.
-### Note: The Bret threat must not arrive until Maya has something real to lose. Chapters 11-15 build that. Ch 16 plants ordinary life before the threat arrives in Ch 17.
+### Note: The Bret threat must not arrive until Maya has something real to lose. Chapters 8-11 build that. Ch 12 plants ordinary life before the threat arrives in Ch 13.
 
 ---
 
-### Ch 10: Questions and Acceptance
+### Ch 8: Questions and Acceptance
 - Sunday afternoon; Ethan asks to understand — she tells him everything
 - Her parents: both knew, both chose silence. "That's a particular kind of loneliness."
 - Her sexual history: a few encounters, always managing, always leaving before being found
 - Bret: an arts journalist — they met in the same world; that's why she trusted him. Told him when she was too exhausted to keep running. He ended it that night. His words. His threat — and the threat had teeth: he could write about her, reach the people whose opinion shaped her career.
 - Ethan: "He was a coward who made his failure your problem."
-- Faith seed: Ethan, quietly: "Maybe it wasn't that God let it happen. Maybe God knew you needed something Bret couldn't give you." He does not say his own name. He lets it sit. This pays off in Ch 19.
+- Faith seed: Ethan, quietly: "Maybe it wasn't that God let it happen. Maybe God knew you needed something Bret couldn't give you." He does not say his own name. He lets it sit. This pays off in Ch 17.
 
-### Ch 11: The Gallery Opening
+### Ch 9: The Gallery Opening
 - Maya curates Concealed/Revealed at The Hidden Gallery
 - She walks the room before guests arrive — thirty-seven pieces, every choice also a choice about herself
 - Her informal talk: the artists who hid themselves in their work; the cost of hiding; what revelation gives back
@@ -146,7 +135,7 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 - Ethan photographs the event; catches her in full command of herself
 - Faith seed: One piece in the east corner — an artist's response to Psalm 139; a figure in a doorway, surrounded by fragments of scripture. Maya stands in front of it for five minutes. Ethan finds her there. Neither speaks.
 
-### Ch 12: The Flashback
+### Ch 10: The Flashback
 - Maya alone that night — gallery speech still warm, Bret's voice arriving anyway
 - The memory in full: his kitchen, her rehearsed words, the silence before he spoke, the sequence of his face
 - She sat very still. She said: okay. She walked out. The shaking didn't start until the street.
@@ -154,7 +143,7 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 - She calls Ethan. He answers immediately. He stays on the line.
 - Faith seed: She had prayed before telling Bret. That was the last time. She sees it now — the two losses on the same night.
 
-### Ch 13: The Faith Crisis
+### Ch 11: The Faith Crisis
 - Walking home from campus, Maya finds herself outside Riverside Community Church
 - Voices through the windows; the warmth of a room where people belong
 - Her hands shake at the door handle; she turns away
@@ -162,19 +151,19 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 - Walking home: something has shifted since Ethan. The door isn't as heavy as it was.
 - Faith seed: At home, she finds the sticky note — a Bible verse she copied at sixteen, before everything. She reads it. Puts it back. Doesn't throw it away.
 
-### Ch 14: Dr. Bowen
+### Ch 12: Dr. Bowen
 - Thesis meeting — Bowen pushes on the central argument: is Maya arguing concealment is valid, or that it's costly?
 - Maya: both. The concealment protects AND damages. The damage compounds. The artists she most admires all eventually revealed themselves. The ones who chose were freer.
 - She walks out knowing the thesis has been about herself all along — and that she already chose
 - Faith seed: Bowen mentions a theologian colleague who found Maya's Voss argument resonant — theology hides truth in plain sight too. Maya walks home thinking about that.
 
-### Ch 15: Ordinary Days
+### Ch 13: Ordinary Days
 - A stretch of regular life — campus, museum, meals, evenings; nothing hidden, nothing managed
 - Ethan notices: she laughs differently, stays longer, doesn't brace
 - Jake to Ethan: "Whatever happened, it worked."
 - Faith seed: Maya searches "intersex and Christianity" late one night. Finds mostly rejection and one affirming theologian. Reads the affirming piece three times. Saves it without telling anyone.
 
-### Ch 16: The Threat
+### Ch 14: The Threat
 - Bret appears at the first exhibition opening — he is covering it professionally for one of his publications; his presence is legitimate, which makes it worse
 - Maya sees him across the room before he sees her; she knows exactly what his being here means
 - He corners them near closing: "Good show. I've been following your work. We should talk about what I know."
@@ -183,7 +172,7 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 - Bret leaves. The threat hangs — but it's no longer one-sided. She has degraded his weapon. He knows it.
 - Maya's fear spirals in the car home — she has something real to lose now, and he still has means. But she is no longer defenceless.
 
-### Ch 17: Under Threat
+### Ch 15: Under Threat
 - Late night at Ethan's; her panic: "He's going to destroy us."
 - Ethan: "He only has power if we let him."
 - Maya: "I told him I'd say we were intimate. I don't know if that was brave or desperate."
@@ -194,13 +183,13 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 - "I need you to mean that." / "I know. That's why I said it."
 - This is the moment she believes him — not the first time he said it, but the first time he said it having named the cost
 
-### Ch 18: Maya's Breaking Point
+### Ch 16: Maya's Breaking Point
 - Maya arrives at Ethan's unannounced, on the edge
 - He opens the door and pulls her in without a word
 - Everything out — Bret's voice, the terror of losing what she finally has
 - He holds her: "You were shaking when you showed me. I held you then. Nothing has changed."
 
-### Ch 19: The Church — First Visit
+### Ch 17: The Church — First Visit
 - Sunday morning; Ethan and Maya walk into Riverside together
 - Maya's heart: the last time she was in a church she was seventeen
 - Pastor James's sermon: God made all of us; God does not make mistakes
@@ -208,15 +197,15 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 - After the service, Reverend Nancy Griffin approaches — warm, unhurried, no performance
 - Nancy is not intersex. Her authority is theological and pastoral. She has sat with enough people the institution rejected to know where it is wrong.
 - Nancy: "I've sat with a lot of people the church didn't know what to do with. God always did."
-- Faith arc pays off: The seed from Ch 10 completes here. Maya arrives at the full realisation herself: Bret had to fail. The night she lost faith was already the beginning of something else. She doesn't say it aloud. But she knows it.
+- Faith arc pays off: The seed from Ch 8 completes here. Maya arrives at the full realisation herself: Bret had to fail. The night she lost faith was already the beginning of something else. She doesn't say it aloud. But she knows it.
 
-### Ch 20: Nancy and the Support Group
+### Ch 18: Nancy and the Support Group
 - Nancy invites Maya to the Wednesday group — six people in the church basement
 - Maya goes alone; listens first; speaks when it's her turn
 - Jordan takes her hand: "You were never alone. Not once."
 - After: Maya texts Ethan — "I found my people."
 
-### Ch 21: The Second Exhibition — Fully Seen
+### Ch 19: The Second Exhibition — Fully Seen
 - The Hidden Gallery; Maya as artist, not curator — her complete self on the walls
 - She and Ethan choose every image together; she controls what is shown
 - Opening night: people moved, celebrating, present — including Dr. Bowen, gallery contacts, the people Bret could have poisoned

@@ -42,34 +42,20 @@ Then pulls back: "I'm sorry, Maya. Is it ok if I hold it?"
 Maya: "Yes, it's ok."
 
 ### What follows
-- Tenderness, not performance
+- Tenderness, not performance  
 - She has been accepted — completely, physically, by someone who loves her
+- **Enhanced**: Ethan's genuine love-driven appreciation and enjoyment of her body
+- **Added**: His POV moments showing authentic attraction and comfort
+- **Key**: His response proves his love makes every part of her desirable to him
 - This is the emotional climax of the first half of the book
 
----
+### Morning After Scene (Ch 6)
+- **New breakfast scene**: Maya makes breakfast showing new caretaking behavior
+- **Maya's vulnerability**: Lists her "firsts" and fears it's "too good to be true"
+- **Ethan's commitment**: "It will be my goal and my honor to show you every day how true and how deep my love is growing for you"
+- **Mutual recognition**: Maya loves him "because of who and what you are"
+- Shows realistic healing process and sets foundation for their relationship
 
-## The Jake Rupture and Street Reunion (Ch 7 — Three Days)
-
-**Chapter:** Ch 7 — Three Days
-**POV:** Maya (with Ethan sections)
-
-### What happens
-- Morning after the reveal, Ethan texts Jake: *something happened last night. can we talk?*
-- Jake's concern is not malicious — he is a good friend who goes wrong. He asks Ethan if he enjoyed being with someone who has a penis. When Ethan says yes, Jake tells him he needs to sit with what that means about him — bisexual, not straight, not what he thought. Plants enough doubt that Ethan goes silent.
-- Three days of silence. Maya reads it as Bret happening again. Calls Zoe from the hallway floor. The dread is specific and physical — she has been here before.
-- Third day: Ethan realises he has been sitting inside someone else's question. Gets up, puts his coat on, walks without texting. Maya has made the same decision — she's going to get the answer from his face whether she wants it or not.
-- They see each other half a block apart. Both stop. Then both walk fast toward each other. Meet in the middle of the pavement.
-- His eyes are wet — she has never seen that. He says *I am so sorry* and tells her what happened. She is angry — fierce, not just hurt. *Don't just say I know. Say something real.* He does: *I failed you.*
-- She asks him to promise it won't happen again. He says he can't promise to always get it right, but he promises he will always come back. No more silence.
-- She steps forward. He holds tighter than before.
-
-### What this is NOT
-- Not a clean forgiveness scene — she is genuinely angry before she forgives him
-- Not Jake being a villain — he is a good friend who was confused and protective and went wrong
-- Jake's guilt carries into Ch 8 (pub scene) — he is warmer than usual, Ethan notices
-
-### Jake's arc
-- He owes Maya a reckoning eventually — not necessarily a speech, but a moment where he demonstrates he understands what he did. This can be placed in Part 2 or 3.
 
 ---
 
