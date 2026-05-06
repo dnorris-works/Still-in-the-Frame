@@ -2,115 +2,79 @@
 
 He woke to the smell of coffee and the quiet sounds of someone moving around downstairs.
 
-For a moment he didn't move — just lay still, orienting himself to the morning light through his bedroom curtains, the particular quality of quiet that meant Maya was still here, still in his house, making breakfast. The city was doing its early-morning thing outside. A pigeon. A delivery truck. The distant hum of traffic.
+He lay still for a moment — orienting himself to the morning light through the curtains, the particular quality of quiet that meant Maya was still here, still in his house. The city was doing its early thing outside. A pigeon. A delivery truck. The distant run of traffic.
 
-He turned his head. Her side of the bed was empty but recently left — the pillow still holding the shape of her, the warmth not entirely gone.
+Her side of the bed was empty but recently left, the pillow still holding the shape of her, the warmth not entirely gone.
 
-He lay there for a moment, listening to the gentle sounds from the kitchen below, then got up and padded downstairs.
+He got up and went downstairs.
 
-The kitchen was warm with morning light. Maya stood at the stove, stirring scrambled eggs, her hair still mussed from sleep. She had set the table with his plates — the ones that looked like they'd been chosen carefully, one at a time, over years. The coffee maker was already brewing.
+The kitchen was warm with morning light. She was at the stove, stirring scrambled eggs, her hair still loose from sleep. She had set the table — his plates, the ones he'd collected one at a time over years — and the coffee was already brewed. She'd found the cups without asking. She'd found all of it without asking.
 
-He appeared in the doorway in a grey t-shirt and bare feet, hair still mussed from sleep, and stopped when he saw her.
+He stopped in the doorway.
 
-"Good morning," she said.
+She glanced over her shoulder and saw him. She didn't say anything immediately. She just looked at him for a moment — checking, he thought, the way she sometimes did, to see if the room had changed — and then turned back to the eggs.
 
-"Good morning, my love," he said, and crossed to her.
+"Sit down," she said. "It's almost done."
 
-The words hung in the air between them — new words, words that meant their relationship had shifted overnight. He put his arms around her from behind, his chin resting on her shoulder, and she leaned back into him and thought: *this is what it feels like. To belong somewhere.*
+He sat.
 
-"You made breakfast," he said against her hair.
+She brought the pan over and served him without ceremony, then sat across from him with her own plate. The morning light came through the window at the angle that made the kitchen look like itself — nothing staged, nothing performed. Just his kitchen, and her in it, and the particular ordinary of someone who had decided to be here.
 
-"I wanted to." She turned in his arms. "I wanted to do something for you."
+He poured her coffee. She wrapped both hands around the cup.
 
-He kissed her — brief, warm, completely certain. "Thank you."
+They ate. Outside, the city graduated from early to morning.
 
-They sat across from each other at the small table, the morning light soft through the windows, the city waking up outside.
+She set her fork down before he did. He looked up.
 
-She took a bite of toast, set it down, looked at him across the table.
-
-"Last night was full of firsts for me," she said quietly.
+"Last night was full of firsts," she said. Not as a confession — just as the plain fact of it, laid on the table between them.
 
 He waited.
 
-"The first time I let anyone see me completely. The first time anyone touched me the way you did. The first time I spent the night with someone." She paused. "The first time I felt completely loved."
+"First time anyone knew and—" She stopped. Started again. "First time I didn't wait for it to go wrong."
 
-Something in his expression gentled.
+Something in his face shifted — not surprise, more like recognition.
 
-"I am deeply grateful, Ethan," she said.
+"Were you all right?" he said. "After the crying."
 
-But then her face changed. Her hands tightened around her coffee mug.
+She thought about it — the real answer, not the reassuring one.
 
-"But I have this fear that keeps nagging at me. Makes me nervous." She looked down. "That it was all too good to be true. I know that's a cliché. That maybe you were infatuated, and you'll wake up and tell me to leave, that you don't really love me."
-
-Her eyes filled. "After a lifetime of self-doubt and some self-loathing, I'm having a hard time believing something this good will last."
-
-He was quiet for a moment. Then he reached across the table and took both her hands in his.
-
-"Maya. Look at me."
-
-She met his eyes, tears still threatening.
-
-"I can tell you all day that I love you and want to be with you and anything else I can think to say. But it will be my goal and my honor to show you every day how true and how deep my love is growing for you, Maya. For you."
-
-She stopped crying. The tears didn't fall.
-
-"I truly love you, too, Ethan," she said. "Because of who and what you are."
-
-They sat in the quiet for a moment, hands still joined across the table.
-
-"I want to ask you things," he said eventually. "Not now if you don't want. But I want to understand. All of it."
-
-"You can ask."
-
-"Not yet." He squeezed her hands gently. "I just wanted you to know I'm going to. And that there's no version of what you tell me that changes this." He looked up. "That's not a promise I'm making because last night happened. It's just true."
-
-She looked at her hands around the mug. She had nothing to manage. No angle to hold, no version of herself to calibrate. He already knew, and he was sitting across from her in a grey t-shirt asking how she was, and there was nothing left to do but sit here and let that be what it was.
-
-"The portraits," she said, when she trusted her voice.
-
-"What about them?"
-
-"You said you wanted to exhibit them. I want to — yes. I want you to." She met his eyes. "That's the first time I've ever given anyone that."
-
-He was quiet for a moment. "I know," he said. "I'll make sure it's worth it."
-
-They sat until the coffee was gone and the morning had properly arrived.
-
-She sat at his kitchen table in his shirt drinking his coffee and looked around the house in the morning light. It looked different in the day. The print on the living room wall — the woman at the window — had a quality in full light she hadn't clocked last night. Something in the set of the woman's shoulders. Not quite longing. More like the posture of someone in the middle of deciding.
-
-At some point her feet were in his lap and neither of them could have said exactly when that had happened.
-
-"Can I ask one thing?" he said.
+"I've been carrying something so long that when I didn't have to carry it anymore I didn't know what to do with my hands." She looked at him. "Does that make sense?"
 
 "Yes."
 
-"Last night — when you were crying." He paused. "Were you okay? After?"
+"I was all right." A pause. "More than all right."
 
-She thought about it. The real answer, not the reassuring one.
+She turned her cup in her hands. The fear was there — it had been there since she woke, the quiet voice asking if it would hold in daylight, if the room would look different to him this morning. She had come downstairs and found the room the same and him looking at her from the doorway the same way he had looked at her in Gallery Six, before she knew his name, and the fear had not gone away but it had gotten quieter.
 
-"I think I've been carrying something for so long that when I didn't have to carry it anymore I didn't know what to do with my hands." She looked at him. "Does that make sense?"
+"I keep waiting," she said, "for you to have changed your mind."
 
-"Yes," he said. "It makes complete sense."
+He reached across the table and took both her hands. Didn't say anything immediately. Just held them.
 
-"I was okay. I am okay." She paused. "More than okay. I just — I didn't know what it would feel like. To be known like that. And still wanted."
+"I know," he said. "I'm still here."
 
-He reached over and held her foot for a moment. Just that. Then let go.
+She looked at their hands on the table.
 
-"I should get back," she said eventually. "Zoe will be wondering."
+"I love you," she said. The first time she'd said it. It came out more simply than she'd expected — no ceremony, just the true thing.
 
-"Will you tell her?"
+"I know that too." He squeezed once. "I love you back."
 
-"Yes." The word surprised her with how certain it was. "Yes. I think I will."
+He let go and picked up his coffee.
 
-He walked her to the door. She put her jacket on. He was leaning against the door frame watching her the way he had in Gallery Six, before she knew his name.
+At some point her feet were in his lap and neither of them could have said exactly when that had happened. She was looking at the print on the living room wall — the woman at the window — which had a quality in full daylight she hadn't clocked the night before. Something in the set of the woman's shoulders. Not quite longing. More like someone in the middle of deciding.
 
-"Ethan."
+"The portraits," she said.
 
-"Yeah."
+He waited.
 
-He kissed her instead of waiting for her response — brief, warm, completely certain. "Go tell Zoe."
+"You said you wanted to show them." She looked at him. "I want you to. Yes."
 
-She went.
+He was quiet for a moment. She watched him take it in — not with visible emotion, but with the attention he brought to things that mattered, the same way he stood in front of work he was genuinely looking at.
+
+"That's the first time I've given anyone that," she said.
+
+"I know." He met her eyes. "I'll make sure it's worth it."
+
+She sat at his kitchen table in his shirt with her feet in his lap and let that be what it was. No managing voice running its calculations. No version of herself being held ready. Just the morning, and the light through his window, and him.
 
 ---
 
