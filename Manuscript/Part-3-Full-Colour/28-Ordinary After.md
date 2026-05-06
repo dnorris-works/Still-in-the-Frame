@@ -98,15 +98,9 @@ She walked out of Bowen's office and down the corridor and out into the afternoo
 
 The new ease was not dramatic.
 
-That was the thing about it — she had expected, somewhere underneath, that the absence of hiding would feel large and bright, would announce itself the way the exhibition had announced itself, would require some corresponding inner ceremony. Instead it was simply there when she looked for it, and had been for a while.
+She stopped doing the small things she had not known she was doing. The steering of conversations. The leaving before being found. The low constant hum of management that had been there for so long she had stopped hearing it as noise.
 
-She stopped doing the small things she had not known she was doing.
-
-She stopped steering conversations at parties away from questions about her body. Not because she had a speech prepared — she didn't — but because the questions stopped feeling like threats. They were just questions, asked by people who didn't know, and she could answer them or not and neither felt like survival.
-
-She stopped leaving before being found. She stayed in rooms she would have left. She stayed in her own skin in those rooms without the low constant hum of management that had been there for so long she had stopped hearing it as noise.
-
-She told two more people. Not announcements — just conversations that reached a point where the information was relevant and she gave it, clearly, without the old architecture of calculation that had preceded every telling. Both times the person she told said something that was approximately right and then moved on, and she discovered that *moved on* was not the same as dismissed — it was just what it looked like when something was received and held and then life continued.
+She told two more people.
 
 One of them was a woman in the support group she had started attending monthly. The telling was quiet, almost incidental, at the end of a conversation that had been about something else entirely. The woman had said: *thank you for telling me.* That was all. It was enough.
 
@@ -145,10 +139,6 @@ He looked up from the contact sheet.
 He set down the loupe. "What would that look like?"
 
 "I don't know yet. Possibly something with the support group — Jordan mentioned a project, an anthology, something collaborative." She wrapped her hands around her mug. "I'm not in a hurry. I just—" She paused. "I notice I'm not afraid of the question anymore. What it would look like if people knew." She looked at him. "That's new."
-
-He looked at her the way he had looked at her the morning of the exhibition — steady, unhurried, the way he looked at something he found genuinely worth looking at.
-
-"It's new for me too," he said. "Watching you not be afraid of it."
 
 She looked at him across the kitchen table in the Friday evening light with the mugs between them and the contact sheets and the coats on the hooks and the quiet of a house that had held a great deal of careful living and thought: *this is what arrived. This exact thing. The kitchen, the mugs, the man across the table who is not going to flinch.*
 

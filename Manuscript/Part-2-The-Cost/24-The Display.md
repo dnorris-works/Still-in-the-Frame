@@ -76,6 +76,8 @@ When he turned to leave, he caught her eye across the room — just for a moment
 
 She watched him go.
 
+She saw Jake once during the evening — near the entrance, with Priya, both of them in their coats as if they hadn't decided yet whether they were staying. Priya came over and embraced her, warm and direct: *This is extraordinary. You're extraordinary.* Jake followed. He shook her hand — not cold, not wrong, just slightly more formal than the Jake she knew from the pub, the Jake who said whatever he was thinking before he'd fully thought it. He said the photographs were remarkable. He looked at them. He stayed for forty minutes and then they left, and Maya watched them go and noted the handshake and put it away without examining it, because tonight was not the night for that.
+
 ---
 
 By ten-thirty the gallery was nearly empty. The last guests drifted toward the exit. The staff began the quiet work of closing.

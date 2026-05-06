@@ -62,7 +62,7 @@ He sat in the darkroom and held the ring in his palm and thought about the trail
 
 He thought about her face when he showed her the photograph from the opening. The woman looking at herself without flinching.
 
-He thought about three weeks after the reveal, in the hospital corridor, when Maya had sat quietly with a consultant's pamphlet in her hands and explained what CAIS meant in clinical terms and he had listened carefully and asked one question and then held her hand in the particular silence that meant: I received that, I am still here, nothing about what you just told me has moved me from where I am standing. He had not thought of it as courage at the time. He had thought of it as the obvious thing. He understood now that obvious things had cost her, specifically, everything, and that the understanding was one he had been given as a gift he had not earned.
+He thought about three weeks after the reveal, in the hospital corridor, when Maya had sat quietly with a consultant's notes in her hands and walked him through what the tests confirmed, and he had listened carefully and asked one question and then held her hand in the particular silence that meant: I received that, I am still here, nothing about what you just told me has moved me from where I am standing. He had not thought of it as courage at the time. He had thought of it as the obvious thing. He understood now that obvious things had cost her, specifically, everything, and that the understanding was one he had been given as a gift he had not earned.
 
 He closed his hand around the ring.
 
