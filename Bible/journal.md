@@ -68,6 +68,26 @@ Parts 1 and 3 unchanged. Chapter 24 (Fully Seen) unchanged.
 
 ---
 
+## Session 4
+
+**Task:** Developmental edits — Chapters 21, 22, 23
+**Files changed:** Manuscript Chs. 21, 22, 23; character-arcs.md
+
+**What changed and why:**
+
+**Ch. 21 — The Pitch:** Tightened. Ethan's pre-door speech cut; he gets one checking question and a nod. Maya's advocacy monologue to the window cut; she describes the three images directly across the desk. Dr. Harrison's approval compressed to one decisive statement incorporating the three prior exhibitions reference. Board/funding back-and-forth reduced to one sentence. Retained verbatim: clinical disclosure, Ethan's single quiet line, three prior exhibitions reference, closing exchange on the street.
+
+**Ch. 22 — The Photo Shoot:** Complete rewrite from Maya's POV. Michelle's interiority, interpretive commentary, and solo closing section removed. Maya's self-consciousness shown through physical detail (repacking the bag, checking the room); its dissolution shown gradually, not declared. The cost of the third shot rendered as the distinction between having decided and living the decision. Three-photo structure, staging details, robe-folding, "complete control" line, and emotional beat of the third photo all preserved. Chapter ends on the images without speech.
+
+**Ch. 23 — The Display:** Jessica Chen interview cut to two exchanges. Trinity insight cut to "Oh" with no further elaboration. Eileen's attendance removed (she was not present in the revised chapter; her Ch. 23 arc entry removed from character-arcs.md). Bret's arrival and full exit preserved; "kitchen-table photograph" detail removed as it no longer exists in the text. Unknown woman's line, undergraduate's exit without goodbye, and closing "It's done" all preserved.
+
+**Bible updates:**
+- `character-arcs.md` — Ethan Ch. 22 corrected (subject of images 2 and 3, not outside documentarian); Maya Ch. 22 updated to reflect POV; Maya Ch. 23 updated with revised scene contents; Eileen Ch. 23 entry removed; Bret Ch. 23 updated to match revised text
+
+**Outline note (not corrected — for author):** The `outline-master.md` Ch. 21 entry describes a Hidden Gallery show and Bret confrontation that does not match the actual Ch. 21 manuscript. This appears to be a pre-existing numbering mismatch from Session 3 that was not carried through to the outline. The outline Ch. 21 entry describes what is now Ch. 24 (Fully Seen). Author should review and correct the outline entries for Chs. 21–24 when ready.
+
+---
+
 ## Open Questions — Resolved
 
 - Maya's full backstory (Bret, what he said, the faith collapse): ✅ Ch. 12 and 14

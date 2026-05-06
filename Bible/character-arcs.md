@@ -31,7 +31,7 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | 19 | Attends Riverside Community Church with Maya for the first time; is very still during the sermon; meets Nancy Griffin |
 | 20 | Receives Maya's text "I found my people"; replies "Come over. Bring whatever you're carrying" |
 | 21 | Pitches the intersex exhibition to Dr. Harrison alongside Maya; squeezes her fingers; opens the door (The Pitch) |
-| 22 | Documents the photo shoot from outside the studio; Michelle Adams directs the three-image series |
+| 22 | Subject of images two and three in the shoot; kneels beside the backdrop for the connection image, fingers two inches from Maya's; moves behind her and holds her for the third image; folds the robe and sets it aside |
 | 23 | At the museum exhibition opening; stands with Maya when Bret arrives; watches Bret leave without writing |
 | 24 | Morning after the opening; photographs Maya at the kitchen table; shows her the opening photographs on his laptop; they walk past the church; she says she wants to go back; he says "tell me when" |
 | 25 | Alone in the darkroom; develops the opening photographs; thinks about his mother; looks at the ring in the darkroom drawer; is ready; waits for the right moment |
@@ -68,8 +68,8 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | 19 | Goes to Riverside Community Church with Ethan; hears Pastor James's sermon; meets Nancy Griffin |
 | 20 | Goes alone to the Wednesday group at St. Anne's; introduces herself; listens; says "I'm trying to tell more"; receives Diane's "there's room"; texts Ethan "I found my people" |
 | 21 | Pitches the intersex exhibition to Dr. Harrison; names her diagnosis in an institutional setting; laughs outside afterward (The Pitch) |
-| 22 | Present for the photo shoot; the three-image series with Michelle Adams; complete visibility |
-| 23 | Museum exhibition opening night (intersex portraits); Bret comes and leaves without writing |
+| 22 | POV for the shoot; self-consciousness through the first image, its gradual dissolution; holds the position for image two reaching toward Ethan; hands the robe to Ethan for image three; faces the camera fully; stands until it crosses from decision to fact |
+| 23 | Museum exhibition opening night (intersex portraits); sees the unknown woman; the "Oh" in front of the three photographs; brief press exchange with Jessica Chen; Bret arrives, speaks, leaves; "It's done" |
 | 24 | Morning after; coffee in his kitchen; sees her own face in his opening photographs without flinching; walks past the church; says she wants to go back |
 | 25 | (Chapter is Ethan in the darkroom — Maya asleep) |
 | 26 | Submits the thesis; Zoe tells her she finally looks like herself; Bowen asks "and now?"; ordinary life; the kitchen table; opens the bookmarks folder |
@@ -139,17 +139,10 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 
 ---
 
-## Jake
-
-*(see above)*
-
----
-
 ## Eileen Vasquez
 
 | Ch. | What happens |
 |---|---|
-| 23 | Attends the gallery opening with coat still on; stands in front of the body photograph; says "the photographs are extraordinary"; leaves before Bret arrives |
 | 28 | Café on Millbank; shown the ring; Ethan arrives; watches his arm-on-forearm gesture and understands; begins the unsaid sentence: "I knew. Before you did."; covers Maya's hand; kisses her cheek and leaves |
 | 30 | Front row at the wedding; looks at the photographs on the walls; finally looks at her daughter during the vows without looking away |
 
@@ -209,5 +202,4 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | Ch. | What happens |
 |---|---|
 | 16 | Appears at the *Drawn Inward* opening with press lanyard; approaches Maya after the room empties; "We should talk. About what I know."; Maya responds; Ethan speaks; Bret leaves |
-| 23 | Attends the museum intersex portrait opening; moves through the room; stands in front of the kitchen-table photograph for nearly two minutes; does not write in his notebook; leaves |
-
+| 23 | Attends the museum intersex portrait opening; crosses the room to Maya; says he was wrong and he has known it; she says "I know"; he nods and leaves without writing |
