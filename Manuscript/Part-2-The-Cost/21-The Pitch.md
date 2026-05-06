@@ -78,7 +78,7 @@ Maya stopped walking and looked at him.
 
 "She did."
 
-Maya started laughing — not the careful laugh she'd perfected over years of managing herself, but the surprised, delighted laugh that had been emerging more and more since Ethan, since Nancy's group, since she'd stopped hiding from God.
+Maya started laughing — not the careful laugh she'd perfected over years of managing herself, but the surprised, delighted laugh that had been emerging more and more since Ethan, since Nancy's group.
 
 "We're really doing this," she said.
 

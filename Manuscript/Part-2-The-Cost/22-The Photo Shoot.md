@@ -22,7 +22,7 @@ The first few minutes were simply discomfort — the physical awkwardness of a p
 
 "How does this feel?" Michelle asked between frames.
 
-"Like prayer," Maya said without moving. "Like the kind of prayer I used to be afraid to say."
+"Like prayer," Maya said without moving.
 
 She meant it, which surprised her. The reaching wasn't performance. It was exactly what it looked like.
 
@@ -42,11 +42,7 @@ His face had not reordered. His hand, four inches from hers across a studio floo
 
 Michelle was shooting. Maya held still.
 
-"You can see the story," she said when they reviewed the shots afterward. "From reaching for the divine to reaching for love."
-
-"And they're not separate things," Ethan said quietly.
-
-She looked at him. He was looking at the images, not at her. She thought: *I know.*
+Ethan looked at the images without speaking when they reviewed the shots.
 
 ---
 

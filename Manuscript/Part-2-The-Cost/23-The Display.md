@@ -46,11 +46,9 @@ The woman nodded once, a small, private thing, and walked back toward the photog
 
 Later, Maya found herself standing alone in front of the third photograph. The room had thinned. She was aware of Nancy and Pastor James somewhere behind her, aware of their voices, their familiarity with the images by now.
 
-She looked at the three photographs in sequence. Something in the progression snagged — the reaching, the connection, the full visibility — and she stood with it, not quite completing the thought.
+She looked at the three photographs in sequence.
 
 "Oh," she said softly.
-
-She left it there.
 
 ---
 
