@@ -22,9 +22,9 @@ The first few minutes were simply discomfort — the physical awkwardness of a p
 
 "How does this feel?" Michelle asked between frames.
 
-"Like prayer," Maya said without moving.
+Maya didn't answer immediately. She was reaching. She was just here.
 
-She meant it, which surprised her. The reaching wasn't performance. It was exactly what it looked like.
+"Keep going," she said.
 
 She held the position and let the camera do what the camera did. At some point the self-consciousness dissolved — not dramatically, not in a moment she could mark later, but gradually, the way her body had stopped being a source of shock when she was finally with someone who didn't treat it as one. She was just reaching. She was just here.
 
@@ -74,4 +74,8 @@ She had spent so many years hiding — from doctors, from lovers, from God. From
 
 These photographs were the opposite of hiding.
 
-She looked at them for a long time without speaking. There was nothing she needed to add.
+She looked at them for a long time without speaking.
+
+She thought about the word she'd reached for during the first photograph and not quite found — something about the quality of the reaching, the held position, the deliberate offering of herself to the light. She had the word now. It had arrived somewhere between then and this moment, the way words arrived when you stopped pressing them.
+
+She didn't say it aloud. She didn't need to.

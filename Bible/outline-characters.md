@@ -7,7 +7,7 @@
 - Thesis: "Hidden Narratives in Abstract Expressionism"
 - Works part-time as a gallery guide at City Museum of Contemporary Art
 - Hiking enthusiast
-- Intersex — presents fully as a woman; also has a penis; cannot get pregnant
+- Intersex — 46,XX/46,XY chimerism; no exact syndrome name; presents fully as a woman but also has a micropenis; cannot get pregnant; the chimerism arose spontaneously and is not inherited
 - Raised Catholic; her faith was stripped by shame — she believes God cannot accept her as she is
 - Her mother knows but has never spoken of it; her father believes it was "corrected" at birth
 - Past: ex-boyfriend Bret reacted with disgust and cruelty when she disclosed — "You're a freak"

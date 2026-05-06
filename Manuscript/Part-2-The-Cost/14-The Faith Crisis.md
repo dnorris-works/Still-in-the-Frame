@@ -24,7 +24,25 @@ She had stopped going after that. Not dramatically. Gradually, then completely.
 
 She thought of a pamphlet someone had left in the university library once, years ago — not for her, just left there. She had read three pages in a bathroom stall and then folded it very carefully and put it in the bin. She could still see the font. The word *disordered* in plain serif type, as though it were simply a fact, the way boiling point was a fact, the way gravity was.
 
-She had found the other piece a year later. The one she had found late one night when she had typed *intersex and Christianity* into a search bar and mostly hated is what came back. One theologian, buried in the results, had said something different. She had written the name down and looked it up again twice since. She hadn't told anyone about that. It lived in a bookmarks folder she had named simply *maybe*.
+She had found the other piece a year later. The one she had found late one night when she had typed *intersex and Christianity* into a search bar and mostly hated what came back. One theologian, buried in the results, had said something different. She had written the name down and looked it up again twice since. She hadn't told anyone about that. It lived in a bookmarks folder she had named simply *maybe*.
+
+But she had read the other answers too. The careful ones. The ones that were not cruel — that wanted to be kind, she thought, that were trying — and had still arrived at the same place. *You must choose.* As if she could amputate half of what she was and call it obedience. As if the choosing itself was not a kind of violence. She had read a bishop's letter once, thoughtful, measured, full of words like *pastoral* and *accompaniment*, that concluded she was called to celibacy as a gift from God. She had sat with that for an hour. She had understood what it was trying to do. And then she had understood what it was actually doing, which was telling her that the only permissible response to being what she was, was to be nothing at all.
+
+She had XX chromosomes and XY chromosomes. Both. Not metaphorically. Not as identity or aspiration. As cellular fact, as biological reality, as the literal truth of every tissue in her body. She was male and female in the same body, at the same time, without remainder.
+
+The church said: marry the opposite sex.
+
+She stood on the pavement and held that.
+
+She had no opposite sex. She *was* the opposite sex. Whatever she married would be, by some reading, the same — and by another reading, different. The category didn't hold. It had never been designed for a person like her, which meant it had never been designed for her at all, which meant every answer the institution offered was an answer to a question it had mistaken for hers.
+
+This was not bitterness. She had moved past bitterness years ago, the way you moved past a town that had nothing for you — not with anger, just with the understanding that you were going somewhere else. This was something colder and more precise: the recognition that the institution was not being cruel to her specifically. It simply had no category that fit. And in the absence of a category, it had offered her the nearest available thing, which was silence, or celibacy, or the instruction to choose — and none of those were answers. They were the shape of an answer with nothing inside.
+
+She thought about her grandmother. Who had held a green Bible and read *fearfully and wonderfully made* with complete certainty, as if it were simply true, as if it had always been true, as if no institution's confusion about categories could alter the fact of it. Her grandmother had not been a theologian. She had not argued. She had simply believed, with the quiet totality of someone who had decided once and never needed to decide again.
+
+Her grandmother had died when Maya was seventeen — before the school library, before the word, before any of it. She had never known. And Maya had never had to watch her find out.
+
+*Maybe that's all faith is*, Maya thought. *Deciding that the verse is still true regardless.*
 
 The singing inside rose slightly, then settled.
 

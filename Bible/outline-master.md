@@ -21,7 +21,7 @@ The faith seeds are a lyric device: small, recurring, quietly accumulating towar
 
 **POV:** Maya's story throughout. Eileen appears as Maya experiences her — never as a POV character. The book belongs to Maya.
 
-**Intersex characters:** Maya only. Eileen is an X-linked CAIS carrier — she passed the condition to Maya. The reader learns this. Eileen is not intersex herself. Nancy Griffin is not intersex. The acceptance Maya receives comes from people with no personal stake. That is the argument.
+**Intersex characters:** Maya only. The chimerism arose spontaneously — it is not inherited and cannot be passed on. Eileen is not a carrier; she could not have known this would happen. Nancy Griffin is not intersex. The acceptance Maya receives comes from people with no personal stake. That is the argument.
 
 **Length:** Write the true story at its true length. Do not pad.
 

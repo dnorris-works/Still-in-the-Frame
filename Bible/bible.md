@@ -18,10 +18,10 @@ Facts extracted from the manuscript. Organised by category.
 - **See full profile:** `ethan-calloway.md`
 
 ### Maya Vasquez
-- **Role:** Female lead; an intersex woman (CAIS — Complete Androgen Insensitivity Syndrome)
+- **Role:** Female lead; an intersex woman (46,XX/46,XY chimerism — no named syndrome)
 - **Profession:** Part-time gallery guide; PhD candidate; curator
 - **Thesis:** *Hidden Narratives in Abstract Expressionism* — submitted April; defence panel includes Hartley from Edinburgh
-- **Medical:** CAIS; cannot get pregnant; mother was told at her birth; Maya found the term herself at sixteen
+- **Medical:** 46,XX/46,XY chimerism; both XX and XY chromosomal populations; functional vagina and micropenis; cannot get pregnant; mother was told at her birth; Maya found what information she could at sixteen — no exact clinical label existed for her condition
 - **Faith arc:** Collapsed after Bret; grandmother's faith held as a reference; Post-it note (Psalm 139:14) carried since age 16; faith crisis at Riverside Community Church door (November, Ch. 14); first service with Ethan (Ch. 19); joins Nancy's Wednesday group (Ch. 20); married at the church
 - **See full profile:** `maya-vasquez.md`
 
@@ -185,9 +185,9 @@ Facts extracted from the manuscript. Organised by category.
 
 ## Established Facts
 
-1. Maya is intersex — specifically CAIS (Complete Androgen Insensitivity Syndrome). She cannot get pregnant.
+1. Maya is intersex — specifically 46,XX/46,XY chimerism. No exact syndrome name. She cannot get pregnant.
 2. Maya's mother Eileen was told about her condition when Maya was three weeks old and said nothing for twenty-six years.
-3. Maya found the medical term herself at sixteen in a school library.
+3. Maya searched for information about her condition at sixteen in a school library, alone. No exact clinical label existed for what she has. The searches returned conditions that were close, never exact.
 4. Bret was an arts critic/journalist. After Maya disclosed to him he said: *"You're a freak. You're not a real woman. You deceived me."* He threatened to use his professional platform against her.
 5. Maya's faith collapsed the same night as the Bret disclosure. She had prayed the night before; the prayer appeared to go unanswered.
 6. Maya has carried a Post-it with Psalm 139:14 in her own handwriting since she was sixteen.

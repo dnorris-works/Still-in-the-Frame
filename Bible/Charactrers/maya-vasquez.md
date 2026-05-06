@@ -2,7 +2,7 @@
 
 **Role:** Female lead
 **Age:** 26
-**Identity:** An intersex woman — specifically, she has Complete Androgen Insensitivity Syndrome (CAIS)
+**Identity:** An intersex woman — specifically, she has 46,XX/46,XY chimerism
 
 ---
 
@@ -22,14 +22,15 @@ Presents entirely as a woman — there is nothing visually unusual about her. Ab
 
 ## Medical
 
-Intersex condition: **Complete Androgen Insensitivity Syndrome (CAIS)**
-- XY chromosomes; the body cannot respond to androgens; developed female in the womb as a result
-- External genitalia female; has a phallus (clitoromegaly) and a vagina
-- No uterus; no ovaries; internal undescended testes (surgically removed in adolescence)
-- Cannot become pregnant; she describes this as part of the same picture
-- Condition is X-linked recessive — inherited through Eileen, her mother, who is a carrier
+Intersex condition: **46,XX/46,XY Chimerism**
+- Both XX and XY chromosomal populations present in her cells — verifiable by testing different tissues, which may yield different results
+- Believed to result from two embryos fusing at a very early stage of development
+- External genitalia developed from both chromosomal lines: a functional vagina with a clitoris, and a penis (5 inches erect, fully erectile, with normal sensation) positioned above the vaginal opening
+- Mixed gonadal tissue internally — partial ovarian and partial testicular development; neither fully functional for reproduction
+- Cannot become pregnant; she has made a separate peace with this
+- No named syndrome; her condition has no clinical label she has found that fits it precisely. This is part of what made the adolescent discovery so isolating — there was no community to find, no exact term to search
 
-Discovered formally at sixteen when she failed to menstruate. The doctors were clinical; the language was careful; none of it landed gently. Her mother was in the room. Her mother said nothing. Her father was not there — he had already stepped back from the harder conversations by then. The silence in that doctor's office set the pattern for the decade that followed. Maya found the medical term herself at sixteen, alone in a school library with the computer turned slightly away from the door.
+Discovered formally at sixteen when she failed to menstruate. The doctors were clinical; the language was careful; none of it landed gently. Her mother was in the room. Her mother said nothing. Her father was not there — he had already stepped back from the harder conversations by then. The silence in that doctor's office set the pattern for the decade that followed. Maya found what information she could at sixteen, alone in a school library with the computer turned slightly away from the door — but the searches returned conditions that were close, never exact.
 
 ---
 

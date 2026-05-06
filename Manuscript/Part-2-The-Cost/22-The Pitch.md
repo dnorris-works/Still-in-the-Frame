@@ -1,66 +1,64 @@
 # Chapter 22: The Pitch
 
-Maya stood outside the museum administration building, her hand resting on the cold brass handle.
+The brass handle of the administration building was cold under Maya's palm.
 
-"We don't have to do this," Ethan said quietly beside her.
+She had been standing there long enough that Ethan had stopped pretending not to notice.
 
-She looked at him — this man who had held her through revelation, who had caught her making breakfast while calling her *my love*, who had promised to show her daily how deep his love was growing. In the three weeks since she'd found her people at Nancy's group, since she'd heard Pastor James say that God makes no mistakes, something had been building in her chest. Not just acceptance — something bolder.
+"We don't have to do this," he said.
 
-"Yes, we do," she said. "I'm tired of hiding behind other people's art."
+"I know." She didn't move. The lobby was visible through the glass — the receptionist's desk, the elevator bank, the particular institutional beige of a building where decisions were made. She had been in that lobby a hundred times. It had never looked like this.
 
-"And you're sure about me being in the third photograph?" His voice was careful, not uncertain but checking. "It changes everything — makes it about us, not just you."
+She thought about the pitch she had practised. The words she had assembled in order. Three weeks ago she had stood in Nancy's basement and said *I'm intersex* to five strangers and the room had held, and she had thought: if that room held, this one can. The logic still worked. She was simply standing at the door.
 
-Maya turned to face him fully. "That's exactly why it matters. The story isn't just about being intersex. It's about being loved exactly as I am. You're part of that story."
+She pushed it open.
 
-He nodded once, squeezed her fingers, and opened the door.
+"You're sure about the third photograph?" Ethan asked quietly as they crossed the lobby. "With me in it."
+
+"Yes." She pressed the elevator button. "Are you?"
+
+He looked at her. "Yes."
+
+The doors opened. They got in.
 
 ---
 
-The elevator to the fourth floor was silent except for the mechanical whir of ascent. Maya watched the numbers climb and thought about the last time she had stood in an elevator preparing to expose herself — the doctor's office at sixteen, her mother's silence filling the space between floors. This was different. This was her choice.
+The elevator to the fourth floor was silent except for the mechanical whir of ascent. Maya watched the numbers climb. She had not been to this floor before. Eighteen months at this museum and she had never had a reason to come to the fourth floor.
 
-"Dr. Harrison will see you now," the receptionist said, gesturing toward the corner office.
+The receptionist led them to a corner office. The door was already open.
 
-Dr. Patricia Harrison, Director of Exhibitions, looked up from her desk as they entered. She was younger than Maya had expected, maybe forty, with the kind of sharp attention that came from years of evaluating what belonged on museum walls.
+Dr. Patricia Harrison was younger than Maya had expected — mid-forties, the kind of focused attention in her face that came from years of deciding what mattered. She was reading something when they entered and finished the sentence before she looked up. Maya filed that away.
 
-"Ms. Vasquez, Mr. Calloway. Please, sit." She gestured to the chairs across from her desk. "I understand you have a proposal for us."
+"Ms. Vasquez. Mr. Calloway." She gestured to the chairs. "Tell me what you're proposing."
 
-Maya sat forward slightly, the way she sat when she was about to make an argument she believed in completely. "We want to create an exhibition that has never been done before. Not just in this museum — anywhere."
+Not *I understand you have a proposal.* Tell me. Maya registered the difference and sat forward.
 
-"Go on."
+She laid it out: three photographs, large-scale, black and white. The progression — solitude, then the space between two people, then full visibility. Nude. Her body, specifically, which was the point.
 
-"Intersex visibility through fine art photography." The words came out steady, clear. "Three large-scale black and white photographs exploring the journey from solitude to connection to complete revelation."
+"I'm intersex," she said. "The photographs are of me."
 
-Dr. Harrison's expression didn't change, but something in her eyes sharpened. "And the subject of these photographs?"
+Harrison's expression didn't change. "How does it manifest, if you're willing to say?"
 
-Maya felt Ethan's presence beside her, solid and certain. She met Dr. Harrison's eyes directly.
+"I have both XX and XY chromosomes," she said. "My body developed from both. There's no exact clinical name for it — the searches never quite match. I have a vagina and a penis."
 
-"Ethan and I. Though I should clarify — I'm the one who's intersex."
+Harrison was quiet. She looked at the desk for a moment — not avoiding Maya's eyes, just thinking, the way Maya herself thought when something required actual consideration rather than a managed response.
 
-The words sat in the office between them. Maya waited for the flinch, the polite deflection, the careful language that meant *no* without saying it.
+"Your thesis," she said. "Hidden narratives. Artists who embedded the personal into the technique." She looked up. "Bowen mentioned it when I asked about you."
 
-It didn't come.
+Maya had not known Harrison had asked about her. The information landed somewhere behind her sternum.
 
-"Tell me more," Dr. Harrison said.
+"This is the opposite of that," Harrison said. "Nothing embedded. Nothing hidden."
 
-Maya took a breath. "They'll be nude photographs. Full artistic nudity."
+"Yes," Maya said. "That's the point."
 
-She described the three images — the first, ambiguous, her alone and reaching; the second, fingers barely touching Ethan's; the third, fully facing the camera, his arms around her. The progression of the story.
+Harrison stood and moved to the window. The city below was doing its October thing — grey, continuous. She looked at it for a moment.
 
-Ethan spoke for the first time since they'd entered. "Solitude to connection to truth. It's not exploitative. It's about dignity and representation."
+"The board will have concerns," she said. "Funding implications. Public response. I won't pretend otherwise." She turned back. "But I've pushed harder proposals than this through this institution and I expect I can push this one." A pause. "What I need to know is whether you can stand in that gallery on opening night and not flinch. Not for the board — for yourself. Because if you flinch, the work flinches."
 
-Dr. Harrison leaned back in her chair, fingers steepled. "Ms. Vasquez, I need to ask you something directly. You are intersex. May I ask how it manifests?"
+Maya looked at her steadily. "I won't flinch."
 
-"Yes." Maya didn't hesitate. "I have complete androgen insensitivity syndrome. XY chromosomes, but my body couldn't respond to androgens during development. I have both a penis and a vagina."
+Harrison held her gaze for a moment. Then she extended her hand.
 
-The clinical language felt strange in this context, but necessary. This wasn't pillow talk or whispered confessions. This was institutional approval.
-
-"And you want to exhibit photographs showing this?"
-
-"I want to exhibit photographs showing me."
-
-Dr. Harrison was quiet for a long moment. "The board will need to approve this," she said finally. "There will be concerns about public response, about funding implications." She stood and moved to the window. "But that's exactly the kind of challenge this institution was founded to meet." She turned back. "I'll push for this. The committee decides, but you'll have my support. We've shown three prior exhibitions that required this kind of courage — the AIDS memorial project, the transgender military series, the undocumented immigrants collection. This belongs in that lineage."
-
-She extended her hand. "I think this is important work."
+"We'll need a committee approval. I'll set it up for next week."
 
 ---
 
@@ -84,6 +82,6 @@ Maya started laughing — not the careful laugh she'd perfected over years of ma
 
 "We're really doing this." He pulled her closer. "How does it feel?"
 
-She thought about it. About the teenager who had learned her diagnosis in sterile medical language. About the woman who had managed angles and exits and carefully constructed versions of herself. About standing in Nancy's basement saying *I'm intersex* to five strangers who became family.
+She thought about it. About the teenager who had looked for a name in a school library and never quite found one. About the woman who had managed angles and exits and carefully constructed versions of herself. About standing in Nancy's basement saying *I'm intersex* to five strangers who became family.
 
 "Like coming home to myself," she said.
