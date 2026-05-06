@@ -1,4 +1,4 @@
-# Chapter 20: The Group
+# Chapter 21: The Group
 
 Nancy's note arrived on a Tuesday, slipped under the Hidden Gallery's door in an envelope addressed to Maya Vasquez, care of the gallery, which was not where Maya worked but was apparently where Nancy had been able to find her. Inside was a single index card, handwritten in blue ink.
 

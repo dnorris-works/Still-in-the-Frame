@@ -1,4 +1,4 @@
-# Chapter 32: The Wedding
+# Chapter 33: The Wedding
 
 The photographs were Ethan's idea.
 

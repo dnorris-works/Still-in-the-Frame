@@ -1,4 +1,4 @@
-# Chapter 28: The Proposal
+# Chapter 29: The Proposal
 
 It was his idea, but she said yes before he'd finished suggesting it.
 

@@ -1,4 +1,4 @@
-# Chapter 30: Jake
+# Chapter 31: Jake
 
 Jake called on a Tuesday, which was unusual. He texted as a rule — had texted since they'd met at twenty-two, through a decade of shared exhibitions and bad choices and one good crisis each, and Ethan had come to understand that a call from Jake meant one of two things: something had gone wrong or something needed saying that Jake had decided he could not say well in a text.
 

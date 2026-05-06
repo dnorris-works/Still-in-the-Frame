@@ -1,4 +1,4 @@
-# Chapter 24: Fully Seen
+# Chapter 25: Fully Seen
 
 They spent three Saturdays on the prints.
 

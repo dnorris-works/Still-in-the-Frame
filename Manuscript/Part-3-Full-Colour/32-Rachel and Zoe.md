@@ -1,4 +1,4 @@
-# Chapter 31: Rachel and Zoe
+# Chapter 32: Rachel and Zoe
 
 Rachel called the morning after the café.
 

@@ -1,4 +1,4 @@
-# Chapter 22: The Photo Shoot
+# Chapter 23: The Photo Shoot
 
 Maya arrived at the museum's photography studio at ten, Ethan beside her, the small bag in her hand lighter than she'd expected for what it contained — a robe, some water, the printed reference images Michelle had sent over for the shoot. She had packed and repacked it the night before.
 
