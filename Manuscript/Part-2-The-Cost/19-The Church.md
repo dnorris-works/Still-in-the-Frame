@@ -100,4 +100,6 @@ They walked. The city was Sunday-quiet around them, the particular hush of a mor
 
 She thought: *I want to come back.*
 
-She didn't say that either. She held it with the rest.
+She didn't say that either.
+
+She thought about Nancy's hand — dry and warm, the grip of someone entirely unafraid of what she was shaking. The most ordinary thing in the world.

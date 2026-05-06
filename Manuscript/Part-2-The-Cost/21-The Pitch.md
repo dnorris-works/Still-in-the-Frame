@@ -87,7 +87,3 @@ Maya started laughing — not the careful laugh she'd perfected over years of ma
 She thought about it. About the teenager who had learned her diagnosis in sterile medical language. About the woman who had managed angles and exits and carefully constructed versions of herself. About standing in Nancy's basement saying *I'm intersex* to five strangers who became family.
 
 "Like coming home to myself," she said.
-
-They walked back toward the museum, toward the galleries where Maya had first seen Ethan, toward the space where she would soon hang photographs of her complete self for the world to see. The afternoon light was golden and slanted, the kind of light photographers waited for.
-
-The kind of light that showed everything as it truly was.
