@@ -1,4 +1,4 @@
-# Story Bible Journal — *Seen and Still Loved*
+# Story Bible Journal — *Still in the Frame*
 
 A running record of where we are in building the bible, what has been read and processed, and what comes next.
 

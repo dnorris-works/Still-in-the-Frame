@@ -1,5 +1,5 @@
-# Seen and Still Loved — Master Outline
-### One story. One woman. The man who sees all of her. The world that didn't make room for her. The God who did.
+# *Still in the Frame* — Master Outline
+### One story. One woman. The man who keeps her in the frame. The world that didn't make room for her. The God who did.
 
 ---
 

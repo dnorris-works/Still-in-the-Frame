@@ -1,4 +1,4 @@
-# Seen and Still Loved — Character Index
+# *Still in the Frame* — Character Index
 
 Quick reference for all characters. Full profiles are in this folder.
 
@@ -56,7 +56,7 @@ Quick reference for all characters. Full profiles are in this folder.
 
 ## Story Summary
 
-Contemporary romance about Maya, an intersex woman hiding her truth, who meets Ethan, a photographer who sees her completely. Their journey from first meeting to wedding, with themes of authenticity, acceptance, and love.
+Contemporary romance about Maya, an intersex woman hiding her truth, who meets Ethan, a photographer who keeps her wholly in the frame. Their journey from first meeting to wedding, with themes of authenticity, acceptance, and love.
 
 ## Key Themes
 

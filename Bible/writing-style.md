@@ -1,5 +1,5 @@
 # Writing Style Guide
-## Seen and Still Loved: Finding Love When You're Different
+## *Still in the Frame: A Love Story of Being Wholly Known*
 
 ---
 

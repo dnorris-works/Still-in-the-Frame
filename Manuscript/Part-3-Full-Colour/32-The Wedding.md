@@ -164,8 +164,4 @@ Outside, the city was doing what cities do on October Saturdays — going about 
 
 She stepped into it with her hand in his.
 
-She was seen.
-
-She was still loved.
-
 The door swung shut behind them, and the morning continued.

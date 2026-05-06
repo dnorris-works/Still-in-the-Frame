@@ -1,4 +1,4 @@
-# Story Bible — *Seen and Still Loved*
+# Story Bible — *Still in the Frame*
 
 Facts extracted from the manuscript. Organised by category.
 
@@ -199,7 +199,7 @@ Facts extracted from the manuscript. Organised by category.
 12. Rachel is the best person at the wedding.
 13. Elara Voss called the worked corner of each canvas *the true thing*.
 14. Psalm 139 appears three times: the Post-it note (Maya's own handwriting), the gallery piece titled *Psalm 139* (collage), and Pastor James's sermon.
-15. The title is earned in the final two lines: *"She was seen. She was still loved."*
+15. The title is earned through the novel's central metaphor: Maya, fully in the frame — seen completely, hidden from nothing, and still chosen.
 16. The managing voice: built since Maya was seventeen; told to be quiet for the first time in Ch. 5; largely gone by the end of the story.
 
 ---
@@ -220,7 +220,7 @@ All resolved.
 - **Light and seeing:** Ethan works with light professionally. The right light shows "what was always there but hidden." The photographic act as an act of love.
 - **The space between people:** His mother's subject. Where all the real things happen. By the end, Maya no longer needs the space — she has closed the distance.
 - **The *true thing*:** Elara Voss's name for the hidden authentic thing. Applied to Maya, to Ethan's self-portraits, to the thesis, to the prayer.
-- **Being known and still wanted:** The title's promise. Paid off in the final two lines.
+- **Being known and still wanted:** The title's promise. Paid off in the final image: her hand in his, stepping into the ordinary world, the door swinging shut.
 - **Photography as a seeing practice:** Both characters learn to see. The portrait series is the record of Ethan seeing Maya; the exhibition notes are Maya's record of having been seen.
 - **Faith as a thread:** From the midnight call (Ch. 3) through the grandmother, Bret's kitchen, the Post-it, the church door in November, the first Sunday with Ethan, Nancy's group, to the wedding. The thread is about the same question as the title: does God see all of you, and is there room?
 - **Psalm 139:** The recurring scripture. *"I am fearfully and wonderfully made."* Appears as Maya's handwritten Post-it, as the gallery piece title, and implicitly in Pastor James's sermon.

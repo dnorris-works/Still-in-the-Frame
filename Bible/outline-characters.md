@@ -1,4 +1,4 @@
-# Seen and Still Loved — Bible: Characters, Settings & Themes
+# *Still in the Frame* — Bible: Characters, Settings & Themes
 
 ## Character Profiles
 

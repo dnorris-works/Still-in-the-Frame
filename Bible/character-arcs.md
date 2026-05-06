@@ -1,4 +1,4 @@
-# Character Arcs — *Seen and Still Loved*
+# Character Arcs — *Still in the Frame*
 
 A record of what each character does, chapter by chapter. Updated as chapters are read.
 
