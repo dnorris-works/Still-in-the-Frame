@@ -1,8 +1,8 @@
-# Chapter 30: Rachel and Zoe
+# Chapter 31: Rachel and Zoe
 
 Rachel called the morning after the café.
 
-Not a text — a call, which was Rachel's way of saying that a text was insufficient for the occasion. Maya answered it on the way to campus and stood on the pavement outside the humanities building with her bag on her shoulder and the April sun doing its best and heard Rachel say, before Maya had finished her hello: *"He texted me last night. When were you going to tell me?"*
+Not a text — a call, which was Rachel's way of saying that a text was insufficient for the occasion. Maya answered it on the way to campus and stood on the pavement outside the humanities building with her bag on her shoulder and the April sun doing its best, and heard Rachel say, before Maya had finished her hello: *"He texted me last night. When were you going to tell me?"*
 
 "I was going to tell you today."
 
@@ -146,13 +146,13 @@ Maya reached up and retrieved the second glass from the counter, with the same u
 
 They sat on the kitchen floor with their wine and the cutting board abandoned on the counter and the Friday evening doing its gentle thing outside the window, and talked for two hours about nothing that mattered and everything that did — the dress, the flowers, Rachel's opinions about flowers which Zoe declared she was fully prepared to support, Marcus's dancing which she was not prepared to defend, the photographs Ethan would take and how they would look in fifty years, the vows which Maya said she hadn't written yet and Zoe said she didn't believe.
 
-At some point the wine was gone and the evening was late and Zoe leaned her head back against the cabinet and looked at the ceiling.
+At some point, the wine was gone and the evening was late, and Zoe leaned her head back against the cabinet and looked at the ceiling.
 
-"I knew he was the one," she said. "That first morning. When you came out of your room after the museum and you had that face."
+"I knew he was the one," she said. "That first morning. When you came out of your room after the museum, and you had that face."
 
 "What face."
 
-"The face." She turned her head. "The one you had when you were about to stop hiding. I'd never seen it before. I recognised it anyway." She smiled. "You looked terrified and completely certain at the same time."
+"The face." She turned her head. "The one you had when you were about to stop hiding. I'd never seen it before. I recognized it anyway." She smiled. "You looked terrified and completely certain at the same time."
 
 Maya thought about that.
 
