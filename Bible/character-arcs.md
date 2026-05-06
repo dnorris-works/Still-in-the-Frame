@@ -202,4 +202,3 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | Ch. | What happens |
 |---|---|
 | 16 | Appears at the *Drawn Inward* opening with press lanyard; approaches Maya after the room empties; "We should talk. About what I know."; Maya responds; Ethan speaks; Bret leaves |
-| 23 | Attends the museum intersex portrait opening; crosses the room to Maya; says he was wrong and he has known it; she says "I know"; he nods and leaves without writing |

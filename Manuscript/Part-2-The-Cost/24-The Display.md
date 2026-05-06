@@ -78,30 +78,6 @@ She watched him go.
 
 ---
 
-Bret arrived at quarter past eight.
-
-She saw him before he saw her — he was standing in the entrance, scanning the room, and she had a full three seconds to decide how to hold herself before his eyes found her. He looked the same. Of course he looked the same.
-
-He crossed the gallery.
-
-"Maya." His voice was careful. "The photographs are..." He stopped. "They're extraordinary."
-
-She waited.
-
-"I saw the announcement in the Times," he said. "I almost didn't come." He looked toward the photographs, then back at her. "I'm glad I did." Another pause. "I was wrong. What I said — what I did. I've known that for a while."
-
-She looked at him. She didn't say anything.
-
-"I'm not asking for anything," he said. "I just wanted you to know."
-
-"I know," she said.
-
-He nodded. He stood there for another moment as if he might say something further. Then he turned and walked toward the exit and was gone.
-
-She watched the door close behind him. She was still holding her wine glass. Her hand was steady.
-
----
-
 By ten-thirty the gallery was nearly empty. The last guests drifted toward the exit. The staff began the quiet work of closing.
 
 Maya stood in the middle of the room. The three photographs held their arrangement on the white walls — exactly as she had imagined them, months ago, in a museum director's office.
