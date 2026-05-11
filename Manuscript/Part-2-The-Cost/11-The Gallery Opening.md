@@ -4,7 +4,7 @@ The show was called *Concealed/Revealed*, which had been Maya's idea and which s
 
 Not intentionally. Or not consciously. But standing here now, with the white walls and the careful lighting and the work she had chosen piece by piece over the course of a semester, she could see it plainly — the thread running through every artist she'd selected, every image, every note she'd written for the wall text. All of them people who had hidden something true about themselves in their work. All of them eventually stepping out from behind it.
 
-She walked the room slowly, the way she always did before an opening — checking sightlines, adjusting a label that had shifted a millimetre, making sure the lighting on the east corner piece was doing what she'd asked it to do. It was. The figure in the doorway held its ambiguity. She stood in front of it for a moment, then moved on.
+She walked the room slowly, the way she always did before an opening. The east corner piece was doing what she'd asked. The figure in the doorway held its ambiguity. She stood in front of it for a moment, then moved on.
 
 The Hidden Gallery's director, a compact woman named Celia who wore the same grey blazer to every event and made it look like a different choice each time, fell into step beside her.
 

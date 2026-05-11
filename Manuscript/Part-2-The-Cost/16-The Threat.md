@@ -62,6 +62,8 @@ Bret looked at him with the faint assessment of someone deciding whether the obs
 
 The silence stretched. Maya heard it filling with everything she had spent three years afraid of — the shape of his knowledge, the platform he had, the names he knew, the publications that would take the piece. She heard the echo of his kitchen and the specific weight of that wooden chair and the controlled voice that had been somehow worse than shouting.
 
+She had stood in that kitchen alone. She was not alone in this room.
+
 Then she heard herself speak.
 
 "And if you do," she said, "I'll make sure everyone knows we were intimate." Her voice was level. No heat in it, no performance. Just the plain fact of it, laid down like a card she had been holding for three years without knowing it. "I have nothing to lose by saying it. You do."

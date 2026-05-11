@@ -8,7 +8,7 @@ She had been standing there long enough that Ethan had stopped pretending not to
 
 "I know." She didn't move. The lobby was visible through the glass — the receptionist's desk, the elevator bank, the particular institutional beige of a building where decisions were made. She had been in that lobby a hundred times. It had never looked like this.
 
-She thought about the pitch she had practised. The words she had assembled in order. Three weeks ago she had stood in Nancy's basement and said *I'm intersex* to five strangers and the room had held, and she had thought: if that room held, this one can. The logic still worked. She was simply standing at the door.
+She thought about the pitch she had practised. The words she had assembled in order. Three weeks ago she had stood in Nancy's basement and said *I'm intersex* to five strangers and the room had held, and she had thought: if that room held, this one can. The logic still worked. The only difference between then and now was that this room had consequences she could name. That was not a reason to stay outside. That was the reason to go in.
 
 She pushed it open.
 

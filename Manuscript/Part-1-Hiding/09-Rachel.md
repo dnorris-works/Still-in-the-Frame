@@ -86,6 +86,8 @@ Maya's throat tightened.
 
 She thought about three nights ago. His hands. His face when he looked at her — all of her — and didn't flinch. The way he'd asked permission in the quietest voice she'd ever heard. Rachel was sitting across from her giving her blessing for something she had no idea had already happened, in a form she couldn't imagine, and the kindness of it was almost unbearable. This woman who loved her brother was welcoming Maya into his life without knowing how close it had all come to going differently. Without knowing what Maya had cost him the right to — and what he had chosen anyway.
 
+And without knowing what Maya still had not said. Not to Rachel. Not to anyone in this family. The acceptance Rachel was offering was for a version of Maya that was still, slightly, curated. It would have to hold for now. She did not know what it would look like when it held for the full version.
+
 "I don't," she said quietly.
 
 Rachel nodded once — the small decided movement that was entirely her own. "Good. Then I'm glad it's you. Properly glad."

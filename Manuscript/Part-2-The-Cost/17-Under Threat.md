@@ -160,4 +160,4 @@ His weapon only worked if she was still hiding.
 
 She wasn't hiding.
 
-She closed her eyes. His breathing slowed beside her. Outside, the last sounds of the city thinned to nothing, and she lay in the quiet and let herself be exactly where she was.
+She closed her eyes.

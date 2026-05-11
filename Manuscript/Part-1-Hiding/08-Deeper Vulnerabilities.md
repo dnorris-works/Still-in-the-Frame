@@ -146,6 +146,8 @@ He lowered the camera and looked at her directly — not through the lens, just 
 
 She looked away, at the water, because the directness of it was almost too much to hold.
 
+And because she thought: he doesn't know yet. He has said that without knowing. She would need him to say it after, too, when he did know. She had no way of being certain he would.
+
 He raised the camera again. The shutter clicked.
 
 ---

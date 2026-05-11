@@ -1,5 +1,13 @@
 # Chapter 33: The Wedding
 
+Eileen called on a Tuesday, three weeks before.
+
+Not to say anything significant. She asked about the flowers — had Maya decided on flowers? — and Maya said Zoe and Rachel had strong opinions and it had been largely taken out of her hands, and Eileen made a sound that was almost a laugh and said: *that sounds right.* She asked whether Ethan's family would all be there and Maya said Rachel would be there. There was a pause and then Eileen said: *good. He should have family there.*
+
+They talked for eleven minutes. About the weather, about the church, about nothing that mattered. When they hung up Maya sat at the kitchen table for a moment and thought: she called. She called on a Tuesday about flowers and it was eleven minutes of ordinary and neither of them cried.
+
+That was enough. That was more than she had expected. She held it carefully.
+
 The photographs were Ethan's idea.
 
 He had proposed it carefully, in the way he proposed things that mattered — not as a fait accompli but as a question, sitting across from her at the kitchen table with his coffee going cold and the autumn light coming through the window at the angle that meant it was late morning and neither of them had anywhere urgent to be.

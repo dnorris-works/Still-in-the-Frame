@@ -88,6 +88,8 @@ But she had asked the question, two nights ago. Not in words. In the most expose
 
 She pushed both thoughts aside and kept talking. But they had been there, and she knew it.
 
+And beneath them, briefly, a third: Ethan at the back of the room had seen her give this talk without knowing what was underneath it. She was going to have to tell him. Not tonight. But soon. The knowledge of it sat quiet and certain in the space below the applause.
+
 She finished to sustained applause that surprised her, which it always did.
 
 Dr. Bowen caught her eye and nodded once — the nod that meant: *yes. exactly that.*

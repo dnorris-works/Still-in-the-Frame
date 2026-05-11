@@ -2,7 +2,7 @@
 
 Maya arrived at the museum's photography studio at ten, Ethan beside her, the small bag in her hand lighter than she'd expected for what it contained — a robe, some water, the printed reference images Michelle had sent over for the shoot. She had packed and repacked it the night before.
 
-The studio was already set when they arrived. Backdrops — solid black, soft grey — positioned on the far wall. Equipment table along one side. The lighting was soft and even, the kind that made a room look more considered than it was. Michelle Adams shook their hands and offered coffee, which Maya declined.
+The studio was already set when they arrived. Backdrops positioned on the far wall. Equipment along one side. The lighting was soft and even. Michelle Adams shook their hands and offered coffee, which Maya declined.
 
 She walked the space slowly while they talked logistics. She did this with galleries too — checked the sightlines, got the feel of how it moved. This was different from a gallery. A gallery held other people's truth. This room was going to hold hers.
 

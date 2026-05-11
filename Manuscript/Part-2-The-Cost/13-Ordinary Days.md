@@ -156,9 +156,9 @@ She looked at the paper in her hands. A photograph of a Flemish painter she had 
 
 "Nothing," she said. "Sorry."
 
-He looked up then. Held the look for a moment — reading her, the way he read a print he was still deciding about. Then he went back to the sketchpad. No question. No press. Just the room continuing, and him in it, available.
+He looked up then. Held the look for a moment. Then went back to the sketchpad. No question. No press. Just the room continuing, and him in it, available.
 
-She stayed until nearly eleven, which was later than she'd meant to, and walked home through the wet streets with the unsaid sentence still in her chest, smaller now but present, a thing she was not yet ready to put down.
+She stayed until nearly eleven, which was later than she'd meant to, and walked home through the wet streets with the unsaid sentence still in her chest.
 
 ---
 

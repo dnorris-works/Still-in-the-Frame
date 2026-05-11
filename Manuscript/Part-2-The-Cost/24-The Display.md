@@ -2,7 +2,7 @@
 
 The exhibition opened on a Thursday evening in March, spring light slanting through the museum's tall windows as guests arrived for the opening reception.
 
-Maya stood in the gallery entrance, watching people encounter the photographs for the first time. Each of the three images was printed large-scale — six feet tall, mounted on pristine white walls with careful spacing that allowed each piece to breathe, to command attention.
+Maya stood in the gallery entrance, watching people encounter the photographs for the first time. Each of the three images was printed large-scale, mounted on white walls with careful spacing.
 
 "How does it feel?" Ethan asked, appearing beside her with two glasses of wine.
 

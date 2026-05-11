@@ -24,7 +24,7 @@ The last time she had been inside a church she was seventeen — her grandmother
 
 She had left after that and not come back.
 
-Ethan stood beside her. He didn't say anything.
+But Ethan had come with her. She had said *tell me when* and he had said *I'm here* and that was different from November, from the cold door handle and the alone of it. She was not alone.
 
 She walked to the door and opened it.
 
