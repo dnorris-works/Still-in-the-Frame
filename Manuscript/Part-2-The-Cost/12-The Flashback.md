@@ -34,6 +34,22 @@ She had sat very still. She had not cried in his kitchen. She had said: okay. Sh
 
 She had not prayed again after that. There had seemed no point. If God was there, he had heard her and sent her Bret anyway. If God was there and that was his answer, she wanted nothing to do with him. It was cleaner to decide he wasn't there at all.
 
+She had tried the other answer once. She had been nineteen — two years after the school library, one year into university, still carrying the word the doctors had used and the smaller words she had found herself, none of which quite fit. A campus chaplain. She had not gone looking for a verdict; she had gone because she was tired and because the door had been open and because she had been told, somewhere, that these people were safe.
+
+He had been kind. That was the thing she could never fully set aside — he had been genuinely kind, the way a person is kind when they believe they are helping. He had listened without interrupting. He had made tea. His office had a view of a courtyard, and she had looked at it while she talked, and when she finished he had sat for a moment and then opened his Bible and read from it — not unkindly, not with judgment in his voice, only with the careful tone of someone delivering a difficult truth as gently as they could.
+
+The word he had used was *disordered*. Not as cruelty. As category. As a medical term delivered in a pastoral voice, the way you might tell someone their results had come back and the news was not good but there were options. He had said that her condition — he had used the word condition — placed her outside the ordinary design, and that this was a cross to carry rather than a sin to confess, and that the church would walk with her in it. He had said she was called, given her circumstances, to a life of celibacy — not as punishment, he had been clear about this, but as gift. As the particular vocation that her body made available to her.
+
+She had looked at the courtyard. A pigeon on the stone wall. Two students crossing below with their heads down.
+
+She had said: thank you. She had meant: I understand. What she had understood was this — that the kindest version of the answer was still the same answer. That whether the voice was cruel or careful, the conclusion was identical: there was no version of her that the institution had room for. She was a category error. She could be accompanied, she could be prayed for, she could be walked alongside — but she could not be married, she could not be loved in the ordinary sacramental sense, she could not be what she was and also fully belong.
+
+She had walked out of his office and down the corridor and out into the courtyard and stood in it for a long time.
+
+So when she prayed, three years later, in the bathroom with the tap running — she had not been naive. She had known what the institution said. She had been asking God to be larger than the institution. She had been asking, very specifically, for Bret to be the proof that the chaplain had been wrong.
+
+Bret had not been the proof.
+
 That was the night she lost two things. She hadn't understood that until recently — had felt it only as one large undifferentiated wound. Sitting in her apartment now, in her good earrings, with the gallery speech still warm in her chest, she could finally separate them.
 
 She sat with that for a while.

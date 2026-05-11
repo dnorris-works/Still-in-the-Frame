@@ -22,11 +22,7 @@ She had stopped going after that. Not dramatically. Gradually, then completely.
 
 *If God made me this way*, she thought, standing on the pavement outside Riverside Community Church on a Wednesday evening, *why does the church say I'm wrong?*
 
-She thought of a pamphlet someone had left in the university library once, years ago — not for her, just left there. She had read three pages in a bathroom stall and then folded it very carefully and put it in the bin. She could still see the font. The word *disordered* in plain serif type, as though it were simply a fact, the way boiling point was a fact, the way gravity was.
-
-She had found the other piece a year later. The one she had found late one night when she had typed *intersex and Christianity* into a search bar and mostly hated what came back. One theologian, buried in the results, had said something different. She had written the name down and looked it up again twice since. She hadn't told anyone about that. It lived in a bookmarks folder she had named simply *maybe*.
-
-But she had read the other answers too. The careful ones. The ones that were not cruel — that wanted to be kind, she thought, that were trying — and had still arrived at the same place. *You must choose.* As if she could amputate half of what she was and call it obedience. As if the choosing itself was not a kind of violence. She had read a bishop's letter once, thoughtful, measured, full of words like *pastoral* and *accompaniment*, that concluded she was called to celibacy as a gift from God. She had sat with that for an hour. She had understood what it was trying to do. And then she had understood what it was actually doing, which was telling her that the only permissible response to being what she was, was to be nothing at all.
+She already knew the answers the institution offered. She had been collecting them since she was nineteen — the careful ones, the kind ones, the ones that arrived at the same place regardless of how gently they travelled. She had a bookmarks folder she had named simply *maybe*, which contained the one theologian she had found who said something different. One, in all of it. She had read his paper three times and not told anyone.
 
 She had XX chromosomes and XY chromosomes. Both. Not metaphorically. Not as identity or aspiration. As cellular fact, as biological reality, as the literal truth of every tissue in her body. She was male and female in the same body, at the same time, without remainder.
 
