@@ -108,7 +108,7 @@ Not because she had decided to stop. Because the sentence had reached the place 
 
 Maya looked at her mother. At the careful hands around the cup. At the grief and the relief still there in her eyes, side by side, inseparable.
 
-She had spent years being angry about this. She had spent years in the careful architecture of having made her peace with it. She had built a whole life in the space her mother's silence had made, and that life was good — was better, she thought, than it might have been if the silence had been broken wrong, at the wrong time, by the wrong words.
+She had spent years being angry about this. She had spent years in the careful architecture of having made her peace with it. She had built a whole life in the space her mother's silence had made, and that life was good — was better, she thought, than it might have been if the silence had been broken wrong, at the wrong time, by the wrong words. But there had been a school library, and a computer screen turned slightly away from the door, and a sixteen-year-old girl searching alone for a map that didn't exist — and the person who had the map had been sitting at home saying nothing. That was the cost of it. That was what could not be fully made peace with, not yet, maybe not ever completely.
 
 She thought about Ethan at the counter, taking his time, giving them this.
 

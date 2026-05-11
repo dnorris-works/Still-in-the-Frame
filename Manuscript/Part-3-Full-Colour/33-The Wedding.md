@@ -132,7 +132,7 @@ It was not a long speech. It was the truest thing she had ever heard said in a r
 
 She had written hers at the kitchen table in his house — her kitchen, finally named — on a Wednesday evening while he was in the darkroom. She had drafted it six times and the sixth draft was four sentences and she had known it was done.
 
-"I spent a long time believing I was too complicated to be loved without conditions," she said. "I had evidence for it. Someone I trusted told me what I was and used a word I carried for years." She looked at him directly. "You found out a different way. Without warning. Without words. And your first response was to stay." She steadied. "You saw me when I couldn't see myself. I'm going to spend the rest of my life making sure you know what that meant."
+"I spent a long time believing I was too complicated to be loved without conditions," she said. "I had evidence for it. Someone I trusted told me what I was and used a word I carried for years. Others said the same thing more carefully, and that was somehow worse." She looked at him directly. "You found out a different way. Without warning. Without words. And your first response was to stay." She steadied. "You saw me when I couldn't see myself. I'm going to spend the rest of my life making sure you know what that meant."
 
 The church erupted.
 
