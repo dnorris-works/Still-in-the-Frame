@@ -88,6 +88,91 @@ Parts 1 and 3 unchanged. Chapter 24 (Fully Seen) unchanged.
 
 ---
 
+## Session 5
+
+**Task:** Thematic strengthening — institutional religious rejection; Eileen's silence; wedding vows
+**Files changed:** Chs. 12, 14, 30, 33
+
+**What changed and why:**
+
+**Ch. 12 — The Flashback:** Added the campus chaplain scene. At nineteen, Maya went to a chaplain who was genuinely kind and used the word *disordered* — not as cruelty but as category, a medical term in a pastoral voice. He told her she was called to celibacy as gift. This gives the institutional religious wound its full weight alongside Bret's personal cruelty. The two losses on the same night — Bret and faith — now have equal weight on the page. The prayer she prayed before telling Bret is reframed: she was asking God to be larger than the institution, asking Bret to be the proof the chaplain was wrong. Bret was not the proof.
+
+**Ch. 14 — The Faith Crisis:** Trimmed. The pamphlet and bishop's letter passages repeated what Ch. 12 now does more powerfully and earlier. Replaced with a single light reference: *she already knew the answers the institution offered, had been collecting them since she was nineteen.* The *maybe* folder survives — it points forward toward hope. The philosophical argument (she had no opposite sex, she *was* the opposite sex) preserved intact — it is Maya's own thinking, not an institutional memory, and belongs here.
+
+**Ch. 30 — Eileen:** Added one sentence to the paragraph where Maya processes her mother's silence: *But there had been a school library, and a computer screen turned slightly away from the door, and a sixteen-year-old girl searching alone for a map that didn't exist — and the person who had the map had been sitting at home saying nothing.* Names the specific human cost of Eileen's silence without overwriting the chapter's careful restraint.
+
+**Ch. 33 — The Wedding:** Added one sentence to Maya's vows after *and used a word I carried for years*: *Others said the same thing more carefully, and that was somehow worse.* The chaplain reaches the altar without being named. The institution that told her celibacy was her vocation is the institution that marries her. The irony lands in the vows for the reader who has been carrying Ch. 12.
+
+**Discussions this session:**
+- Pen name: D. Allen Norris is the right choice for both this book and *The Quantum Witness*. Unified author brand serves the mission — putting the religious argument in front of readers who trust the name.
+- Genre: Contemporary romance. The institutional religious thread strengthens the romance; it does not change the genre. Could be positioned as faith-adjacent romance on KDP.
+- The chaplain principle: the most damaging institutional voice is measured, kind, and wrong. A calm authority figure quoting scripture in a pastoral tone is worse than cruelty because it cannot be dismissed.
+- The contrast that drives the story: Riverside Community Church marries the woman the institution said could not be married. Same faith. Different room. That is the argument made in story rather than essay.
+
+## Session 6
+
+**Task:** Bible housekeeping — chaplain record
+**Files changed:** `chaplain.md` (new); `bible.md`; `Charactrers/INDEX.md`
+
+**What was done:**
+
+Created `chaplain.md` — a full character profile for the unnamed campus chaplain from Ch. 12. The profile covers: what the text establishes (his kindness, the tea, the courtyard view, the word *disordered*, the celibacy-as-gift argument); his thematic function (the institutional voice at its best — which is the point); his arc across Chs. 12, 14, and 33; what he is not (cruel, a villain, representative of all faith in the novel); and a note for the author on keeping him unnamed and undenominated.
+
+Added the chaplain to `bible.md` under Characters (before Douglas Reid).
+
+Added the chaplain to `Charactrers/INDEX.md` under Spiritual Community.
+
+**Session 5 flag cleared:** *Bible update — the chaplain is now a significant story element with no entry in bible.md or any character file.* ✅
+
+---
+
+## Session 7
+
+**Task:** Ch. 14 duplicate passage — dev edit
+**Files changed:** `14-The Faith Crisis.md`
+
+**What changed and why:**
+
+The flagged duplicate was two articulations of the same fear sitting too close together — one at the door (handle in hand), one at the newsagent's window two blocks away. On close reading they are not identical: the first fear is *what if it's real and has room for me and I've wasted years*; the second is *what if it's good and then it finds out what I am and closes*. The second is sharper, more specific, and ties directly to the mother's silence and Bret. It earns its place.
+
+The actual problem was inside the door paragraph: the fear was named, then immediately explained in a sentence that told the reader what they were about to discover organically. That pre-emption was the redundancy. Cut: *Then she understood what she was actually afraid of. Not rejection. The other thing. The possibility that she walked in and it was real, and it had room for her, and she had been wrong to stay away. She could not absorb that. Not tonight. Not alone.* The paragraph now ends: *She stood there for a full minute. Maybe longer.* Then she walks away. The reader carries the unexplained weight of that to the newsagent's window, where she names it herself — and it lands harder for having waited.
+
+**Session 5 flag cleared:** *Ch. 14 duplicate passage.* ✅
+
+---
+
+## Session 8
+
+**Task:** Part 3 developmental edits — all items from Session 3 dev pass
+**Files changed:** Chs. 26, 28, 29, 30, 31, 32, 33
+
+**What changed and why:**
+
+**Ch. 26:** Cut *Nothing braced. Nothing held back.* from the east wall photograph description. The phrase had already done its work in prior chapters; the single *posture entirely open* carries the weight.
+
+**Ch. 28:** Removed the acquisitions colleague paragraph — a second instance of the cost arriving that generalised what the undergraduate woman's story had already made specific. Cut Bowen's *It always is, with the best ones. The frame is the frame. The subject is the subject.* — too close to the author narrating the novel's own thesis. The *and now?* exchange now ends cleanly at her confirmation and his follow-up question.
+
+**Ch. 29:** Removed *She had been so afraid. She was not afraid now.* — told what the surrounding paragraphs had shown. The reflection ends on the two-year account and moves directly to *I'm glad we came back.*
+
+**Ch. 30:** Trimmed the father passage from six sentences to one. The chapter is about Eileen; the contrast (*Eileen never left*) is established more quickly. Full father backstory preserved in the bible and in Ch. 33 where he walks her down the aisle.
+
+**Ch. 31:** Removed *She is the most honest person I have ever met. Not because it's easy for her.* from Ethan's account — a summary sentence that pre-empted the argument made by the four sentences before it. Now ends: *She chose it, specifically, when she had every reason not to.*
+
+**Ch. 32:** Trimmed the Rachel phone scene. Removed the flowers back-and-forth (two exchanges compressed to one closing line); moved Rachel's emotional declaration to flow directly after *Obviously.* The Zoe scene is unchanged and now receives its full weight.
+
+**Ch. 33:** Removed the Eileen observation from the pre-walk inventory (where it arrived too early and was static). Rewrote the walk-up-the-aisle sentence to carry the Eileen moment in motion — she sees Eileen looking at the library photograph, then Eileen looks at her and doesn't look away, and Maya holds her gaze for one step before looking back at Ethan. Cut *It was not a long speech.* — authorial commentary; the vows stand without a verdict.
+
+**Part 3 dev pass: complete.** ✅
+
+---
+
+## What Still Needs Doing
+
+1. **Part 1 developmental edits** — all items from Session 4 dev pass (Chs. 1, 2, 3, 5, 6, 7, 8, 9). To be done next session.
+2. **Outline correction (Chs. 21–24)** — `outline-master.md` entries misaligned from Session 3 reorder. Author review item.
+
+---
+
 ## Open Questions — Resolved
 
 - Maya's full backstory (Bret, what he said, the faith collapse): ✅ Ch. 12 and 14

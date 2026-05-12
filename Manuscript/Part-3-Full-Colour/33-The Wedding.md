@@ -72,8 +72,6 @@ Ethan's photographs lined the walls — not the portraits, just as he'd said. Th
 
 The church was full.
 
-She could see, even from the entrance, Eileen in the front row on the left side, her coat on her lap, her hands folded. Not looking toward the door. Looking at the photographs on the wall beside her — the library one, specifically, Maya bent over a book in winter light, absorbed. Eileen was looking at it with the complete, careful attention that was her particular gift and her particular curse, and she was not looking away.
-
 Jordan from the group sat two rows back, with Diane beside her.
 
 Bowen was there, in the middle, with a colleague Maya didn't recognise, which was entirely in character.
@@ -102,7 +100,7 @@ She was ready.
 
 She walked through the door and the church went quiet in the particular way of a room that has been full of sound and then sees the thing it has been waiting for.
 
-She walked up the aisle and looked at him and he looked at her and neither of them looked away and she was aware, peripherally, of the photographs on the walls — her own life on either side of her as she walked through it — and the faces of the people who had witnessed it or been part of it or found their way into it, and underneath all of that, taking up most of the available space in her chest, the simple fact of him at the end of the aisle with his eyes wet and his face unguarded and the patience of someone who had been paying attention his whole life and had finally found the thing worth paying it to.
+She walked up the aisle and looked at him and he looked at her and neither of them looked away and she was aware, peripherally, of the photographs on the walls — her own life on either side of her as she walked through it — and as she passed the front row she saw Eileen looking at the library photograph on the wall beside her, the one of Maya bent over a book in winter light, absorbed; and then Eileen looked at her, directly, completely, without looking away, the way she had never quite managed before, in all the years of careful presence and careful silence — and Maya let her, held her gaze for one full step, and then looked back at Ethan, because that was where she was, and where she was going to be.
 
 She reached him.
 
@@ -128,7 +126,7 @@ Ethan spoke first. He had written them in the darkroom, which she had guessed, a
 
 "I have been paying attention my whole life," he said. "To the space between people. To what's real when no one's watching. To what a face looks like when it doesn't know it's being seen." His voice was steady, the way he was steady — from somewhere deep and decided. "I found you in Gallery Six, looking at a painting you loved, and I thought: that's someone worth seeing. And I have been seeing you since. Every version. Every light." He stopped. "I love all of you. Every part."
 
-It was not a long speech. It was the truest thing she had ever heard said in a room.
+It was the truest thing she had ever heard said in a room.
 
 She had written hers at the kitchen table in his house — her kitchen, finally named — on a Wednesday evening while he was in the darkroom. She had drafted it six times and the sixth draft was four sentences and she had known it was done.
 

@@ -66,7 +66,7 @@ Later he opened his laptop on the kitchen table and showed her the photographs f
 
 She looked at them one by one.
 
-There was one of her with Bowen — she was talking and her hands were slightly raised in the particular gesture she made when she was making a precise point, and her face was the face of someone who knew exactly what they were saying and was not afraid of it. There was one of her with Zoe, from just after the embrace, both of them still holding on a little, Zoe's eyes bright, Maya's chin on Zoe's shoulder and her eyes closed. There was one from later in the evening where she was alone near the east wall, her back partly to the camera, looking at one of the prints — looking at herself — and her posture was entirely open. Nothing braced. Nothing held back.
+There was one of her with Bowen — she was talking and her hands were slightly raised in the particular gesture she made when she was making a precise point, and her face was the face of someone who knew exactly what they were saying and was not afraid of it. There was one of her with Zoe, from just after the embrace, both of them still holding on a little, Zoe's eyes bright, Maya's chin on Zoe's shoulder and her eyes closed. There was one from later in the evening where she was alone near the east wall, her back partly to the camera, looking at one of the prints — looking at herself — and her posture was entirely open.
 
 She looked at that one for a long time.
 

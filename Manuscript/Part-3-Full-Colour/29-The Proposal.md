@@ -48,10 +48,6 @@ She looked at him. He was looking at the city.
 
 She thought about the first time. The managed version of herself, still so fully assembled, still so careful — the version that said *there are things about me I've never shown anyone* and meant it as a warning and a test at the same time. She thought about what it had cost her to say that, and what it had cost him to answer the way he did, and what happened in the months between that afternoon and this one.
 
-She had been so afraid.
-
-She was not afraid now.
-
 "I'm glad we came back," she said.
 
 He turned to look at her then. And something in the way he looked — the particular quality of the attention, the way he was looking at her like she was the thing he had come to see, like the city and the hawk and the ridge were all beside the point — made her go still.

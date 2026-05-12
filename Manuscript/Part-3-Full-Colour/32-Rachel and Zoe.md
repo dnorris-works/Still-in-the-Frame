@@ -46,11 +46,7 @@ Maya stood on the pavement outside the humanities building with her bag on her s
 
 "Obviously."
 
-"I have opinions about flowers."
-
-"Rachel."
-
-"Not yet. I'll save them. Maya?" A beat. "I'm so happy for you. Both of you. I'm so—" Her voice wobbled slightly and then recovered, with the effort audible. "You're going to be my sister and I have wanted a sister my entire life and I want you to know that I knew. When I met you that first weekend. I knew."
+Rachel's voice softened. "Maya? I'm so happy for you. Both of you. I'm so —" Her voice wobbled slightly and then recovered, with the effort audible. "You're going to be my sister and I have wanted a sister my entire life and I want you to know that I knew. When I met you that first weekend. I knew."
 
 "You didn't say anything."
 
@@ -60,7 +56,7 @@ Maya's throat tightened again.
 
 "Thank you," she said. For the second time. It was still the only possible thing.
 
-"Right," Rachel said, her voice back to its usual forward momentum. "Flowers."
+"Right," Rachel said, her voice back to its usual forward momentum. "Flowers. I have opinions and I'm saving them."
 
 ---
 

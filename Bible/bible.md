@@ -89,6 +89,14 @@ Facts extracted from the manuscript. Organised by category.
 - **Surname:** Reynolds
 - **See full profile:** `bret.md`
 
+### The Campus Chaplain
+- **Role:** Institutional religious voice; minor but structurally significant
+- **Name:** Not given; denomination unspecified
+- **Appears:** Ch. 12 (flashback only); implicitly referenced Ch. 14; reaches the altar without being named in Ch. 33
+- **Key facts:** Maya went to him at nineteen — two years after the school library, one year into university. He was genuinely kind. He listened, made tea, read from his Bible in a measured pastoral tone. The word he used was *disordered* — not as cruelty but as category. He said her condition placed her outside the ordinary design; a cross to carry, not a sin to confess. He said she was called to celibacy as gift, as the particular vocation her body made available to her. Maya said thank you. She meant: *I understand.* She walked out knowing the kindest version of the answer was still the same answer.
+- **Thematic function:** The institutional wound that precedes Bret. When Maya prayed before telling Bret, she already knew what the institution said. She was asking God to be larger than it. Bret was not the proof the chaplain was wrong. The chaplain's kindness is not redemptive — it is what makes the wound permanent. Cruelty can be dismissed; kindness cannot. The institution that told her she could not be married marries her at Riverside Community Church.
+- **See full profile:** `chaplain.md`
+
 ### Douglas Reid
 - **Role:** Theology faculty colleague of Bowen's; passed Maya's Voss paper around; said it was "doing theology without knowing it." Never appears on-page.
 

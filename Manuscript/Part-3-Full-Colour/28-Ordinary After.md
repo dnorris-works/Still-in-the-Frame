@@ -82,7 +82,7 @@ She was quiet for a moment.
 
 "Me," she said.
 
-Bowen nodded, as if she had confirmed something she had known for two years. "It always is, with the best ones. The frame is the frame. The subject is the subject." She folded her hands on the desk. "What happens to it now? The thing you were actually writing about."
+Bowen nodded, as if she had confirmed something she had known for two years. "What happens to it now? The thing you were actually writing about."
 
 She thought about Ethan in the darkroom. The photographs on the wire. The exhibition, forty-two prints, every one of them a choice. Bret's notebook, empty. The woman near the east wall who had said *I didn't know this was possible.*
 
@@ -111,12 +111,6 @@ There was a woman from her undergraduate program — someone she had been friend
 What she had not expected was the absence of it. The way a person you were not close to could become an absence simply by going quiet when before they had not been quiet. A comment not left. A message not sent. The kind of silence that was not nothing.
 
 She thought about it once, on the tube home from campus, and then she put it somewhere she could carry it without it carrying her. She had known this was going to happen. She had said yes to the exhibition knowing this was going to happen. She had been right about both things — the cost and the choice — and neither cancelled the other out.
-
-There was also a conversation with a colleague in the acquisitions department — a man she had worked alongside for a year, not unfriendly, never unkind. He stopped her in the museum corridor on a Tuesday and told her the photographs were remarkable. She thanked him. He stood there for a beat too long, with the expression of someone who had something else to say and had decided not to say it, and then said: *it must have taken courage*, and she said *yes*, and he nodded and went back to his office and they had not had a normal corridor exchange since. Not hostile. Just — recalibrated. As if he now needed slightly more distance to arrange himself before speaking to her.
-
-She noticed it. She filed it. She kept going.
-
-She had stood in a gallery and put her whole self on the walls and let the world look. Some of the world was going to need distance. That was not a surprise. That was not a catastrophe. It was just the cost, arriving at the rate it arrived, in the forms it arrived in.
 
 She kept going.
 

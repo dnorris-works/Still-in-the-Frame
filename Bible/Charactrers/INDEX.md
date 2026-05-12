@@ -34,6 +34,7 @@ Quick reference for all characters. Full profiles are in this folder.
 | **Pastor James** | `pastor-james.md` | Pastor at Riverside Community Church; co-officiates wedding |
 | **Reverend Nancy Griffin** | `nancy-griffin.md` | Co-pastor; convenes St. Anne's support group |
 | **Jordan** | `jordan.md` | Intersex support group member |
+| **The Campus Chaplain** | `chaplain.md` | Unnamed; flashback only (Ch. 12); institutional religious voice; structurally significant |
 
 ---
 

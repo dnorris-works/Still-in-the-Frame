@@ -46,7 +46,7 @@ The low sound of the pub around them. A burst of laughter from the bar.
 
 Ethan set his glass down.
 
-"She's intersex," he said. "She was born with a body that doesn't fit the categories. She has spent twenty-six years managing what people knew about her. She stopped doing that." He kept his voice even. "She put forty-two photographs of herself on a gallery wall and let the world look. She stood in front of a museum director she'd never met and said exactly what she was in clinical language because it was the right language for the room, and then she walked out into the street and laughed until she couldn't breathe." He paused. "She is the most honest person I have ever met. Not because it's easy for her. Because she chose it, specifically, when she had every reason not to."
+"She's intersex," he said. "She was born with a body that doesn't fit the categories. She has spent twenty-six years managing what people knew about her. She stopped doing that." He kept his voice even. "She put forty-two photographs of herself on a gallery wall and let the world look. She stood in front of a museum director she'd never met and said exactly what she was in clinical language because it was the right language for the room, and then she walked out into the street and laughed until she couldn't breathe." He paused. "She chose it, specifically, when she had every reason not to."
 
 Jake was quiet.
 

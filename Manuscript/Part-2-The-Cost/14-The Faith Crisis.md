@@ -52,8 +52,6 @@ The metal was cold. Through the door she could feel the faint warmth of the room
 
 She stood there for a full minute. Maybe longer.
 
-Then she understood what she was actually afraid of. Not rejection. The other thing. The possibility that she walked in and it was real, and it had room for her, and she had been wrong to stay away. She could not absorb that. Not tonight. Not alone.
-
 She let go of the handle, stepped back, and walked away.
 
 ---
