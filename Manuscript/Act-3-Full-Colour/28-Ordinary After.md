@@ -68,7 +68,7 @@ Bowen set the thesis on the desk and looked at her over her glasses with the par
 
 "And now?" she said.
 
-She had been expecting a question about the defence date, or the examination process, or the publication prospects for the Voss argument. She had not been expecting *and now*, delivered with the inflection of someone asking about something larger than the administrative next steps.
+She had been expecting a question about the defense date, or the examination process, or the publication prospects for the Voss argument. She had not been expecting *and now*, delivered with the inflection of someone asking about something larger than the administrative next steps.
 
 "I'm not sure," she said. Which was honest.
 
@@ -88,7 +88,7 @@ She thought about Ethan in the darkroom. The photographs on the wire. The exhibi
 
 "It continues," she said. "Without the hiding."
 
-Bowen looked at her for a moment. "Good," she said again. "That's the right answer." She picked up her pen. "Your defence panel will include Hartley from Edinburgh — she's read the Voss argument and has thoughts. Be ready for her."
+Bowen looked at her for a moment. "Good," she said again. "That's the right answer." She picked up her pen. "Your defense panel will include Hartley from Edinburgh — she's read the Voss argument and has thoughts. Be ready for her."
 
 And just like that they were back to logistics, which was also correct.
 
@@ -110,7 +110,7 @@ There was a woman from her undergraduate program — someone she had been friend
 
 What she had not expected was the absence of it. The way a person you were not close to could become an absence simply by going quiet when before they had not been quiet. A comment not left. A message not sent. The kind of silence that was not nothing.
 
-She thought about it once, on the tube home from campus, and then she put it somewhere she could carry it without it carrying her. She had known this was going to happen. She had said yes to the exhibition knowing this was going to happen. She had been right about both things — the cost and the choice — and neither cancelled the other out.
+She thought about it once, on the tube home from campus, and then she put it somewhere she could carry it without it carrying her. She had known this was going to happen. She had said yes to the exhibition knowing this was going to happen. She had been right about both things — the cost and the choice — and neither canceled the other out.
 
 She kept going.
 

@@ -22,7 +22,7 @@ She had stopped going after that. Not dramatically. Gradually, then completely.
 
 *If God made me this way*, she thought, standing on the pavement outside Riverside Community Church on a Wednesday evening, *why does the church say I'm wrong?*
 
-She already knew the answers the institution offered. She had been collecting them since she was nineteen — the careful ones, the kind ones, the ones that arrived at the same place regardless of how gently they travelled. She had a bookmarks folder she had named simply *maybe*, which contained the one theologian she had found who said something different. One, in all of it. She had read his paper three times and not told anyone.
+She already knew the answers the institution offered. She had been collecting them since she was nineteen — the careful ones, the kind ones, the ones that arrived at the same place regardless of how gently they traveled. She had a bookmarks folder she had named simply *maybe*, which contained the one theologian she had found who said something different. One, in all of it. She had read his paper three times and not told anyone.
 
 She had XX chromosomes and XY chromosomes. Both. Not metaphorically. Not as identity or aspiration. As cellular fact, as biological reality, as the literal truth of every tissue in her body. She was male and female in the same body, at the same time, without remainder.
 
@@ -80,7 +80,7 @@ She was looking for her phone charger in the drawer beside her bed when she foun
 
 A Post-it note, pale yellow, the adhesive long since dried to nothing. She had stuck it to the inside of the drawer at some point and forgotten it — or not forgotten, exactly, but let it sit there at the back of the drawer where she didn't have to see it unless she was looking.
 
-The handwriting was her own but younger — neater, more careful, the handwriting of someone who was still practising. She had copied it at sixteen, she remembered. The summer before everything changed. Her grandmother had read it to her from a small worn Bible with a green cover and Maya had asked for a pen and paper because she wanted to keep it.
+The handwriting was her own but younger — neater, more careful, the handwriting of someone who was still practicing. She had copied it at sixteen, she remembered. The summer before everything changed. Her grandmother had read it to her from a small worn Bible with a green cover and Maya had asked for a pen and paper because she wanted to keep it.
 
 *I praise you because I am fearfully and wonderfully made; your works are wonderful, I know that full well.*
 

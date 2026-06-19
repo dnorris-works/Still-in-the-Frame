@@ -54,7 +54,7 @@ Jake was quiet.
 
 "Then what are you trying to say."
 
-The silence went on long enough that Ethan had time to catalogue the room — the table of women near the window, the barman changing a barrel, the particular smell of the Crown that had been the same since their mid-twenties and had become a kind of constancy he hadn't known he relied on.
+The silence went on long enough that Ethan had time to catalog the room — the table of women near the window, the barman changing a barrel, the particular smell of the Crown that had been the same since their mid-twenties and had become a kind of constancy he hadn't known he relied on.
 
 "I went to the exhibition," Jake said.
 
@@ -98,11 +98,11 @@ Jake looked at him. Something shifted in his expression — not relief exactly, 
 
 "She reads things twice when they land."
 
-Jake was quiet for a moment. Then he said: "I want to meet her properly. Not the pub, not the opening-night crowd. Properly. The four of us — you, her, me, Priya. Somewhere she can see that Priya is — Priya. That we're not a thing she has to manage." He looked at Ethan directly. "And I want to apologise to her. Not a speech. Just clearly."
+Jake was quiet for a moment. Then he said: "I want to meet her properly. Not the pub, not the opening-night crowd. Properly. The four of us — you, her, me, Priya. Somewhere she can see that Priya is — Priya. That we're not a thing she has to manage." He looked at Ethan directly. "And I want to apologize to her. Not a speech. Just clearly."
 
 "She won't want a speech."
 
-"I know. I'm terrible at speeches. You've seen me try." He picked up his glass at last. "I want her to know that I understand what she did, and that I'm — that I'm proud to know her. Which I recognise is not mine to feel. But I do."
+"I know. I'm terrible at speeches. You've seen me try." He picked up his glass at last. "I want her to know that I understand what she did, and that I'm — that I'm proud to know her. Which I recognize is not mine to feel. But I do."
 
 Ethan looked at his oldest friend across the corner table of the pub they had been using for ten years. The good and the complicated of ten years, the specifics of this particular man — his directness, which was also occasionally his slowness, the loyalty that ran underneath it all like water under ground, the fact that he had come here tonight and said the hard thing instead of letting it become permanent silence.
 
@@ -136,7 +136,7 @@ He thought about the card Maya had kept. The way she had read it twice.
 
 She had been carrying Jake's distance without naming it to him — had absorbed it into the general category of things that might happen, things you knew were coming when you chose visibility, things you kept going in spite of. She had not asked Ethan to fix it. She had not made it his problem to solve.
 
-He texted her on the corner of the high street: *Jake said he wants to meet you properly. The four of us. He's going to apologise. I told him you'd make it easier than he deserves.*
+He texted her on the corner of the high street: *Jake said he wants to meet you properly. The four of us. He's going to apologize. I told him you'd make it easier than he deserves.*
 
 She replied before he'd reached the next block.
 

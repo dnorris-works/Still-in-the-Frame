@@ -16,7 +16,7 @@ She got up quietly and went to the kitchen.
 
 ---
 
-She was on her second coffee when he appeared in the doorway, barefoot, in the grey t-shirt he slept in, his hair doing what it always did in the morning. He looked at her with the slight unfocus of someone not yet fully assembled and then at the coffee on the bench and then back at her.
+She was on her second coffee when he appeared in the doorway, barefoot, in the gray t-shirt he slept in, his hair doing what it always did in the morning. He looked at her with the slight unfocus of someone not yet fully assembled and then at the coffee on the bench and then back at her.
 
 "How long have you been up?"
 
@@ -36,7 +36,7 @@ They sat in the morning quiet and the light moved across the kitchen floor the w
 
 ---
 
-He got his camera at some point. She didn't notice when — she was reading the paper, or looking out the window at the courtyard below where a neighbour's cat was conducting a thorough investigation of the drain cover, and then she looked up and he had the camera and was looking at her through it.
+He got his camera at some point. She didn't notice when — she was reading the paper, or looking out the window at the courtyard below where a neighbor's cat was conducting a thorough investigation of the drain cover, and then she looked up and he had the camera and was looking at her through it.
 
 She didn't pose. She looked back at him the way she had looked at the Diaz painting on the night they met — not performing attention, just actually attending. Trying to understand what she was seeing before she committed to having understood it.
 
@@ -62,7 +62,7 @@ She looked at him across the table in the morning light.
 
 "Thank you." He was trying not to look pleased with himself and not entirely succeeding, which she found, as always, disproportionately endearing.
 
-Later he opened his laptop on the kitchen table and showed her the photographs from the night before — not the exhibition prints, the new ones, the ones he'd made during the opening. She had not known he was making them. She had known he was there with the camera but she had been in the room the way she'd been in the room, present and not watching herself, and so the photographs were of someone she recognised but had not been observing.
+Later he opened his laptop on the kitchen table and showed her the photographs from the night before — not the exhibition prints, the new ones, the ones he'd made during the opening. She had not known he was making them. She had known he was there with the camera but she had been in the room the way she'd been in the room, present and not watching herself, and so the photographs were of someone she recognized but had not been observing.
 
 She looked at them one by one.
 

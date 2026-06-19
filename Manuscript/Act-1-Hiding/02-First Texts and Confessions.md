@@ -164,7 +164,7 @@ Maya had replied to his reply — something about the specific quality of museum
 
 "You're smiling about art."
 
-Ethan typed his reply. Maya came back within two minutes — a photograph this time, taken on her phone: a detail of a canvas he didn't recognise, the brushwork in the lower corner where most people never looked. The caption said: *Hidden narratives. They're everywhere once you start looking.*
+Ethan typed his reply. Maya came back within two minutes — a photograph this time, taken on her phone: a detail of a canvas he didn't recognize, the brushwork in the lower corner where most people never looked. The caption said: *Hidden narratives. They're everywhere once you start looking.*
 
 He showed it to Jake without thinking about it.
 

@@ -54,7 +54,7 @@ She started again.
 
 *This exhibition is the work of two people: the photographer and the subject, who is also the curator. The subject is intersex — born with a body that does not fit the categories the medical and social world provided. She spent twenty-six years managing what was visible of herself. These photographs are the record of what happened when she stopped.*
 
-She read it back. It was plain. It was true. It did not hedge. It said the word she had never written in a professional context and did not apologise for it.
+She read it back. It was plain. It was true. It did not hedge. It said the word she had never written in a professional context and did not apologize for it.
 
 She printed it. Read it again on paper, which was different from reading it on a screen — more real, more fixed, the way a print in the developing tray became permanent in the silver emulsion.
 
@@ -74,7 +74,7 @@ Ethan was near the entrance with his camera. He caught her eye and she looked at
 
 By seven the room was full.
 
-Dr. Bowen came with a colleague Maya didn't recognise and stood in front of the corridor photograph for a long time. Zoe arrived with Marcus and Rachel — the three of them together, which Maya had not known to expect. Marcus found Maya first, before Zoe had got her coat off, and put both hands briefly on her shoulders and said: *This is extraordinary. You are extraordinary.* Simply, without performance, the way he said most things. Then he stepped back and let Zoe through. Zoe went immediately to the kitchen-table image and stood very still. Jordan from the group came with Diane; Maya saw them come in and felt something loosen in her chest that she hadn't known was still tight. Nancy arrived at seven-thirty in the green cardigan, looked at the room, looked at Maya, and nodded once — the nod of someone who had been waiting a long time to see this and was not surprised it was worth the wait.
+Dr. Bowen came with a colleague Maya didn't recognize and stood in front of the corridor photograph for a long time. Zoe arrived with Marcus and Rachel — the three of them together, which Maya had not known to expect. Marcus found Maya first, before Zoe had got her coat off, and put both hands briefly on her shoulders and said: *This is extraordinary. You are extraordinary.* Simply, without performance, the way he said most things. Then he stepped back and let Zoe through. Zoe went immediately to the kitchen-table image and stood very still. Jordan from the group came with Diane; Maya saw them come in and felt something loosen in her chest that she hadn't known was still tight. Nancy arrived at seven-thirty in the green cardigan, looked at the room, looked at Maya, and nodded once — the nod of someone who had been waiting a long time to see this and was not surprised it was worth the wait.
 
 Her mother arrived at eight.
 
@@ -128,7 +128,7 @@ Maya watched her go and thought: she was here. She came, and she looked, and she
 
 A woman she didn't know came to find her near the east wall and said: *I didn't know this was possible. To feel this seen by someone else's work.* Maya thanked her and watched her go back to the photographs and understood exactly what she meant.
 
-She also saw, from across the room, someone she recognised.
+She also saw, from across the room, someone she recognized.
 
 A woman she had known at undergraduate — they had been in the same seminar for two years, had shared notes, had gone for drinks twice at the end of term. She had come in at eight-thirty with a man Maya didn't know, and for the first twenty minutes had moved through the room the way anyone moved through it: slowly, looking. Then she had reached the east wall. She had stood in front of the body photograph for a long time.
 

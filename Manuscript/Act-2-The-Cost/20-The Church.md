@@ -30,7 +30,7 @@ She walked to the door and opened it.
 
 ---
 
-The inside was smaller than she'd imagined from the windows. Stone walls, plain wooden pews, morning light coming through clear glass rather than stained — the particular light of a room that has been loved for a long time by people who believed it deserved care. It smelled of old wood and something she couldn't name that she realised after a moment was simply the smell of a room that had been in continuous use, generation after generation, for purposes larger than the furniture.
+The inside was smaller than she'd imagined from the windows. Stone walls, plain wooden pews, morning light coming through clear glass rather than stained — the particular light of a room that has been loved for a long time by people who believed it deserved care. It smelled of old wood and something she couldn't name that she realized after a moment was simply the smell of a room that had been in continuous use, generation after generation, for purposes larger than the furniture.
 
 They slid into a pew near the back. The congregation was modest — sixty, perhaps seventy people. Families, couples, people alone. An elderly man two rows ahead who appeared to be asleep. A young woman in the row across the aisle with a sleeping infant against her chest. Nothing remarkable. Just — people who had come on a Sunday morning because they thought it mattered.
 
@@ -40,7 +40,7 @@ He talked about making. Not creation in the grand cosmological sense — the pra
 
 Maya looked at her hands.
 
-*We spend a great deal of time apologising for what we are,* Pastor James said. *As if the Maker made an error and we are responsible for correcting it. But God does not make mistakes. God makes people. And people are not mistakes.*
+*We spend a great deal of time apologizing for what we are,* Pastor James said. *As if the Maker made an error and we are responsible for correcting it. But God does not make mistakes. God makes people. And people are not mistakes.*
 
 She had read these arguments. She had found them online at two in the morning in the folder named *maybe*. She had read the theologian's paper three times and moved it to an unnamed folder. She had held the argument at arm's length and turned it over and understood it intellectually, the way you understand something that hasn't reached your body yet.
 

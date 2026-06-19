@@ -58,7 +58,7 @@ He retreated to the kitchen table and opened his sketchpad with the exaggerated 
 
 "I am grateful. Silently."
 
-"Silently isn't a flavour."
+"Silently isn't a flavor."
 
 "I'm grateful in a rich, complex way that doesn't require vocalisation."
 
@@ -172,7 +172,7 @@ The argument was careful and specific. Not sentimental, not advocacy — just th
 
 She read that sentence twice.
 
-She thought about the note in the drawer. The Post-it in her own careful sixteen-year-old handwriting, the adhesive long gone, carried forward through every move in a box she never labelled but always knew where to find.
+She thought about the note in the drawer. The Post-it in her own careful sixteen-year-old handwriting, the adhesive long gone, carried forward through every move in a box she never labeled but always knew where to find.
 
 She closed the article. Opened it again. Saved it to a second folder — one she did not name *maybe*.
 

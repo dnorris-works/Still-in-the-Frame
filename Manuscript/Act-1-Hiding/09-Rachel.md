@@ -48,7 +48,7 @@ Maya looked at her cup.
 
 "How long is a while?"
 
-"Since Mum." She said it simply, without weight, the way you say something you've carried long enough that it no longer needs to be handled carefully. "She died when he was nineteen. He was the one who found her. He was home for the weekend."
+"Since Mom." She said it simply, without weight, the way you say something you've carried long enough that it no longer needs to be handled carefully. "She died when he was nineteen. He was the one who found her. He was home for the weekend."
 
 Maya looked up.
 
@@ -80,7 +80,7 @@ Maya looked at the table.
 
 "No," Maya said. "He's not."
 
-"I just wanted to say — " Rachel stopped, turned her mug in her hands. "He hasn't had anyone who really sees him. Not since Mum. People see the patience and the kindness and they take it for granted. You don't." She met Maya's eyes. "I can tell you don't."
+"I just wanted to say — " Rachel stopped, turned her mug in her hands. "He hasn't had anyone who really sees him. Not since Mom. People see the patience and the kindness and they take it for granted. You don't." She met Maya's eyes. "I can tell you don't."
 
 Maya's throat tightened.
 

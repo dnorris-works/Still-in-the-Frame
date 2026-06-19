@@ -48,7 +48,7 @@ Bret was standing four feet away. Up close he looked older than she remembered �
 
 "I've been following your work." A pause — the weight of it deliberate. "We should talk. About what I know."
 
-The room had not changed around her but it felt smaller. Celia was near the back. The assistant director was stacking programmes. Ethan was — she could feel him crossing the room, arriving quietly beside her, saying nothing.
+The room had not changed around her but it felt smaller. Celia was near the back. The assistant director was stacking programs. Ethan was — she could feel him crossing the room, arriving quietly beside her, saying nothing.
 
 Bret glanced at Ethan once. Then back to Maya.
 
@@ -96,7 +96,7 @@ In the car she sat with her hands in her lap and the city moving past and said n
 
 Ethan drove. He didn't answer immediately, which was how she knew he was actually thinking about it.
 
-"You said the true thing," he said finally. "That's not always the same as the safe thing." A pause. "But it was right. He needed to know you're not defenceless."
+"You said the true thing," he said finally. "That's not always the same as the safe thing." A pause. "But it was right. He needed to know you're not defenseless."
 
 She looked out the window. The street lights moved across the glass.
 

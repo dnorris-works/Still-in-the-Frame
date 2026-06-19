@@ -12,7 +12,7 @@ They'd started at seven-thirty. Ethan had arrived at the trailhead to find her a
 
 She handed him the coffee and started walking before he'd finished his first sip.
 
-The managing voice had offered, on the drive over, a full inventory of reasons this was inadvisable. She had catalogued them at the junction and kept driving anyway. Now she was climbing, and the trail demanded enough attention that the voice had gone quiet, which was its own kind of relief.
+The managing voice had offered, on the drive over, a full inventory of reasons this was inadvisable. She had cataloged them at the junction and kept driving anyway. Now she was climbing, and the trail demanded enough attention that the voice had gone quiet, which was its own kind of relief.
 
 They'd been climbing for an hour. Maya set the pace — faster than Ethan expected and exactly what she should have expected of herself. She moved through the rocky sections with her head down and her hands out for balance, fluid in the way of someone whose body knew what her mind didn't need to manage. He followed, and neither of them talked much because the trail didn't invite it. It demanded attention.
 
@@ -72,7 +72,7 @@ She turned back to the ridge and kept walking. He thought she was pleased, thoug
 
 ---
 
-The overlook opened up without warning — one more scramble over a rock shelf and then suddenly the city, spread out below them in the late-morning haze, the river a grey ribbon through the middle of it, the museum just visible in the cluster of downtown buildings.
+The overlook opened up without warning — one more scramble over a rock shelf and then suddenly the city, spread out below them in the late-morning haze, the river a gray ribbon through the middle of it, the museum just visible in the cluster of downtown buildings.
 
 Maya stood at the edge and looked.
 
@@ -84,7 +84,7 @@ She turned and caught him doing it. Didn't look away. "What?"
 
 They ate with their legs dangling over the drop, which Maya had insisted on and which Ethan had agreed to because he would have agreed to most things she suggested in that particular moment. The city hummed distantly below. A hawk turned lazy circles somewhere to the left.
 
-She talked about places she wanted to go. Iceland first — the light in winter, the way photographers described it, flat and grey and unlike anything else. Then Japan, for the gardens and the specific quality of attention they demanded. She spoke about them the way she spoke about art, as though she'd already half-lived there in her imagination and was just waiting for the rest of her to catch up.
+She talked about places she wanted to go. Iceland first — the light in winter, the way photographers described it, flat and gray and unlike anything else. Then Japan, for the gardens and the specific quality of attention they demanded. She spoke about them the way she spoke about art, as though she'd already half-lived there in her imagination and was just waiting for the rest of her to catch up.
 
 "Where would you go?" she asked.
 

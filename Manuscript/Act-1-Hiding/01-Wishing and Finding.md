@@ -32,13 +32,13 @@ The museum was supposed to be empty. Security swept at seven. The last gallery s
 
 He stayed on the ladder and listened. No alarm. No urgency. Just the quiet sound of someone moving slowly through a room — the particular unhurried pace of a person looking at something.
 
-He finished the track light and the one after it, checked the effect from the centre of the gallery, adjusted the angle two degrees, and checked it again. Twenty minutes, start to finish. When he climbed down for the last time and crossed to the archway between Gallery Seven and Six, she was still there.
+He finished the track light and the one after it, checked the effect from the center of the gallery, adjusted the angle two degrees, and checked it again. Twenty minutes, start to finish. When he climbed down for the last time and crossed to the archway between Gallery Seven and Six, she was still there.
 
 She was standing with her back to him, about six feet from a mid-sized oil painting he'd installed himself three weeks ago — one of the newer acquisitions, a Diaz piece the director had been quietly proud of. She had a notebook open in her left hand and a pen she wasn't using in her right, and she was looking at the painting the way some people look at things they're trying to understand before they commit to having understood them.
 
 He stood in the archway longer than was strictly necessary.
 
-She was wearing dark jeans and a grey knit sweater, her hair pulled back loosely with a few strands at the side of her face. Her head was tilted slightly. Something about the angle reminded him of his mother in the photograph — that same patient, focused stillness.
+She was wearing dark jeans and a gray knit sweater, her hair pulled back loosely with a few strands at the side of her face. Her head was tilted slightly. Something about the angle reminded him of his mother in the photograph — that same patient, focused stillness.
 
 He cleared his throat.
 
@@ -64,11 +64,11 @@ She watched him approach the painting without stepping back.
 
 "Tell me."
 
-"Most people read it left to right. The diagonal, the colour tension in the upper left quadrant." He moved slightly to the right of where she'd been standing. "But Diaz was right-handed and worked with chronic pain in her shoulder, so she built from the centre outward. If you stand here—"
+"Most people read it left to right. The diagonal, the color tension in the upper left quadrant." He moved slightly to the right of where she'd been standing. "But Diaz was right-handed and worked with chronic pain in her shoulder, so she built from the center outward. If you stand here—"
 
 Maya moved beside him without being asked.
 
-"—the whole thing reorganises. The centre becomes the origin point instead of the midpoint. Everything else is aftermath."
+"—the whole thing reorganizes. The center becomes the origin point instead of the midpoint. Everything else is aftermath."
 
 She was quiet for a moment. Then: "Her notebooks confirm that. She called it *painting from the wound outward*. My argument is that the technique itself is the narrative — not a record of the wound, but the wound's actual shape made visible."
 

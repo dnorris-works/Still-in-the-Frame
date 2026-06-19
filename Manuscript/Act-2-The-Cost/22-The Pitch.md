@@ -8,7 +8,7 @@ She had been standing there long enough that Ethan had stopped pretending not to
 
 "I know." She didn't move. The lobby was visible through the glass — the receptionist's desk, the elevator bank, the particular institutional beige of a building where decisions were made. She had been in that lobby a hundred times. It had never looked like this.
 
-She thought about the pitch she had practised. The words she had assembled in order. Three weeks ago she had stood in Nancy's basement and said *I'm intersex* to five strangers and the room had held, and she had thought: if that room held, this one can. The logic still worked. The only difference between then and now was that this room had consequences she could name. That was not a reason to stay outside. That was the reason to go in.
+She thought about the pitch she had practiced. The words she had assembled in order. Three weeks ago she had stood in Nancy's basement and said *I'm intersex* to five strangers and the room had held, and she had thought: if that room held, this one can. The logic still worked. The only difference between then and now was that this room had consequences she could name. That was not a reason to stay outside. That was the reason to go in.
 
 She pushed it open.
 
@@ -50,7 +50,7 @@ Maya had not known Harrison had asked about her. The information landed somewher
 
 "Yes," Maya said. "That's the point."
 
-Harrison stood and moved to the window. The city below was doing its October thing — grey, continuous. She looked at it for a moment.
+Harrison stood and moved to the window. The city below was doing its October thing — gray, continuous. She looked at it for a moment.
 
 "The board will have concerns," she said. "Funding implications. Public response. I won't pretend otherwise." She turned back. "But I've pushed harder proposals than this through this institution and I expect I can push this one." A pause. "What I need to know is whether you can stand in that gallery on opening night and not flinch. Not for the board — for yourself. Because if you flinch, the work flinches."
 

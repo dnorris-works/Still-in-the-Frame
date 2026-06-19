@@ -4,7 +4,7 @@ She didn't go home.
 
 She had meant to — had said goodnight to Ethan in the car and got out at her street and stood on the pavement outside her building for a full minute before she took out her phone and texted him. *Still there?* He replied in under a minute. *Yes. Come back.*
 
-She walked the six blocks. The city was quiet now, the late-night version of itself, the restaurants closing and the last of the theatre crowds dispersed. Her footsteps were loud on the wet pavement. She had been holding something at an even distance for four hours and she could feel it getting closer.
+She walked the six blocks. The city was quiet now, the late-night version of itself, the restaurants closing and the last of the theater crowds dispersed. Her footsteps were loud on the wet pavement. She had been holding something at an even distance for four hours and she could feel it getting closer.
 
 He opened the door before she knocked — again. She had asked him once how he did that and he had said he could hear the stairwell from his desk, which she still didn't entirely believe but had stopped contesting.
 
@@ -38,7 +38,7 @@ She sat down — the armchair across from him, not the couch. Still in her coat.
 
 She looked up.
 
-"He needed to know you're not defenceless," Ethan said. "You're not. You never were. You just didn't know what you were holding yet."
+"He needed to know you're not defenseless," Ethan said. "You're not. You never were. You just didn't know what you were holding yet."
 
 She sat with that for a moment. The coat was too warm but she didn't take it off.
 
@@ -46,7 +46,7 @@ She sat with that for a moment. The coat was too warm but she didn't take it off
 
 She stared at him. "You want me to—"
 
-"Show yourself first. He can't weaponise what's already public." A pause. "And you've already chosen to. You told Bowen the thesis was about yourself. You gave that talk in November and people cried. You've already been stepping out from behind the work. This is just — doing it all the way."
+"Show yourself first. He can't weaponize what's already public." A pause. "And you've already chosen to. You told Bowen the thesis was about yourself. You gave that talk in November and people cried. You've already been stepping out from behind the work. This is just — doing it all the way."
 
 The room was quiet. Outside the city made its small late sounds.
 

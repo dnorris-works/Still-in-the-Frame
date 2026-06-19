@@ -14,7 +14,7 @@ She did know. She had thought about little else for three weeks.
 
 ---
 
-For the first image, she removed her robe and stood where Michelle directed her — hands and knees on the studio floor, one arm extended upward, reaching toward something above the frame. She had been told the composition in advance. She had practised the position in her bedroom the night before, alone, feeling for what it would cost.
+For the first image, she removed her robe and stood where Michelle directed her — hands and knees on the studio floor, one arm extended upward, reaching toward something above the frame. She had been told the composition in advance. She had practiced the position in her bedroom the night before, alone, feeling for what it would cost.
 
 It cost less than she expected and more than she'd admitted.
 
@@ -50,7 +50,7 @@ The third photo required something she hadn't anticipated — not courage, exact
 
 What the third photo required was willingness to be finished hiding. Not the decision — she had made the decision weeks ago. The living of it. The actual standing in front of the camera and facing the aperture with everything visible and letting that be so.
 
-She removed her robe and handed it to Ethan. He folded it carefully and set it aside. She turned and faced Michelle's camera, arms at her sides, chin lifted slightly — the posture she had practised and which felt, in this moment, both studied and entirely her own.
+She removed her robe and handed it to Ethan. He folded it carefully and set it aside. She turned and faced Michelle's camera, arms at her sides, chin lifted slightly — the posture she had practiced and which felt, in this moment, both studied and entirely her own.
 
 "Ethan," she said.
 

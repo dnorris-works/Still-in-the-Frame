@@ -1,6 +1,6 @@
 # Chapter 8: Deeper Vulnerabilities
 
-She cancelled on a Wednesday, which she never did.
+She canceled on a Wednesday, which she never did.
 
 They'd had plans — coffee at the museum before her morning in the archive, something they'd fallen into doing most Wednesdays. Ethan found out via text at seven-fifteen: a brief, uncharacteristically flat message that said she wasn't coming and not to worry about it. He read it twice, noted the absence of any of her usual precision, and was at the pharmacy by seven forty-five.
 

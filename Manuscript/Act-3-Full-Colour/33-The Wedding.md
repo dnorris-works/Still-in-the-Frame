@@ -44,7 +44,7 @@ Zoe came and sat on the end of the bed and they drank their coffee and didn't sa
 
 The dress was simple.
 
-She had known from the beginning that it would be — not a decision but a recognition, the way she recognised most true things about herself. No architecture. No structure designed to present a version. Just fabric that moved when she moved, the colour of winter light, her hair loose, the ring already on her right hand so it could be moved to the left in the church. She had not managed anything about how she looked. She had simply looked like herself. All of it.
+She had known from the beginning that it would be — not a decision but a recognition, the way she recognized most true things about herself. No architecture. No structure designed to present a version. Just fabric that moved when she moved, the color of winter light, her hair loose, the ring already on her right hand so it could be moved to the left in the church. She had not managed anything about how she looked. She had simply looked like herself. All of it.
 
 Zoe did up the buttons at the back and then stood with her hands on Maya's shoulders and looked at her in the mirror.
 
@@ -74,7 +74,7 @@ The church was full.
 
 Jordan from the group sat two rows back, with Diane beside her.
 
-Bowen was there, in the middle, with a colleague Maya didn't recognise, which was entirely in character.
+Bowen was there, in the middle, with a colleague Maya didn't recognize, which was entirely in character.
 
 Jake sat near the back, slightly apart, in the particular posture of a man still carrying something he hadn't yet put down. He had sent a card after the engagement — handwritten, longer than she had expected, and she had read it twice and kept it. It was not the full reckoning she had once imagined. It was a beginning of one.
 
@@ -82,7 +82,7 @@ Rachel stood at the front, on Ethan's side, in the deep green she had chosen aft
 
 Zoe stood opposite, on Maya's side, and when she caught Maya's eye through the doors she pressed her lips together and raised her chin slightly, which was her way of saying: *you've got this. I've always known you've got this.*
 
-And at the front, at the altar, between Pastor James in his vestments and Nancy Griffin in hers — the grey cardigan replaced today by something ceremonial, though the authority in her face was exactly the same — stood Ethan.
+And at the front, at the altar, between Pastor James in his vestments and Nancy Griffin in hers — the gray cardigan replaced today by something ceremonial, though the authority in her face was exactly the same — stood Ethan.
 
 He was looking at the door.
 

@@ -116,7 +116,7 @@ She looked up.
 
 "You deserved that." Zoe's voice was fierce and certain, the voice she used when she had decided something. "You deserved exactly that. Not someday. Not eventually. Not when you'd earned it or when the situation was right or when you'd found some way to make it easier for whoever was on the receiving end." She shook her head. "You deserved it and you got it and I have been waiting for that for three years and I am not going to stop crying about it for at least a week, so."
 
-Maya laughed — the real laugh, the one that surprised her. Zoe laughed too, wetly, and refilled both glasses, and they sat on the kitchen floor until the wine was gone and the afternoon had gone grey outside and Maya felt, fully and without managing it, the particular lightness of a thing set down after years of carrying.
+Maya laughed — the real laugh, the one that surprised her. Zoe laughed too, wetly, and refilled both glasses, and they sat on the kitchen floor until the wine was gone and the afternoon had gone gray outside and Maya felt, fully and without managing it, the particular lightness of a thing set down after years of carrying.
 
 ---
 

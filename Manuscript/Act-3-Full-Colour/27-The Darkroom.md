@@ -10,7 +10,7 @@ The second roll was from the opening.
 
 He worked slowly with those. The negs were dense — he'd shot a lot, more than he'd planned, because he'd found himself unable to stop. The room had had a quality that night. He had been working exhibitions for eleven years and he had never felt a room like that one — not the energy of a good opening, the wine-and-talking, the social performance of people deciding how to respond to art. Something different. Something in the room that was real.
 
-Maya in the centre of it.
+Maya in the center of it.
 
 He clipped the strip to the wire and examined it with the loupe. Frame after frame of her — not posing, never posing, she had stopped doing that around month three and he had never asked her to resume — just her, in the room, being fully in it. He had one of her with Bowen where both of them were laughing at something and her head was slightly back and her hands were in the air and you could see from twenty feet away that she knew exactly what she was talking about and was not afraid of anyone in the room knowing it. He had one of her with the woman who had stopped her near the east wall, the stranger, the one who had said *I didn't know this was possible* — and in it Maya's face was the particular face she made when something arrived that she hadn't prepared a response for. Not undone. Present. Taking it in without managing it.
 
@@ -32,11 +32,11 @@ He thought about her when he was in the darkroom. Not always — not deliberatel
 
 He thought: she would have liked Maya. Not for the reasons people usually meant when they said that about someone — the polite, surface reasons. She would have liked Maya because Maya thought in images too, because she walked through a room the way she walked through an argument, looking for what was actually there rather than what was supposed to be there. Because she had a particular kind of honesty that was not bluntness but precision — she said what she meant and meant it exactly, and his mother had no patience for any other kind.
 
-He thought: she would have recognised something.
+He thought: she would have recognized something.
 
 His mother had believed, without ambiguity and without performance, that people were made. Not accidentally. Not by a process that was indifferent to the result. She held this view with the same calm certainty she held everything — she never argued it, never needed it confirmed, would have found the need for confirmation faintly puzzling. It was simply the ground under her feet. She had lived from it, which was different from believing it.
 
-She had also believed, with the same unforced certainty, that the person you were made to love was knowable — that if you were paying attention, you would recognise them. Not by the absence of difficulty. Not because it was easy. But by the quality of who you became when you were with them.
+She had also believed, with the same unforced certainty, that the person you were made to love was knowable — that if you were paying attention, you would recognize them. Not by the absence of difficulty. Not because it was easy. But by the quality of who you became when you were with them.
 
 He looked at the frame on the wire. Maya, eight o'clock, the east wall, her posture entirely open.
 
@@ -46,7 +46,7 @@ He had been paying attention.
 
 The ring was in the darkroom drawer, which was not where most people kept rings. He had put it there three weeks ago because he spent more time in the darkroom than anywhere else except Maya's place or his own house, and because he had not yet decided on the right moment, and having it close felt important. Not anxious — not the fidgeting urgency of someone waiting for the right conditions to arrange themselves. More like carrying something that you trusted enough not to need to check on constantly, but wanted near.
 
-He had found it in his mother's jewellery box.
+He had found it in his mother's jewelry box.
 
 Not the ring — the ring he had bought, a narrow gold band with a single dark green stone set in a simple bezel, from a small antiques shop off the main street. But when he'd brought it home and set it on the kitchen table he had gone to the dresser in the back bedroom, the one that still held what she'd left, and found the brooch — the oval moss-agate piece she had worn to church on the Sundays she felt like wearing something — and held them side by side in the afternoon light. The same stone, near enough. The same quality of green. He had not planned it that way. He had not even consciously remembered the brooch when he chose the ring. He had sat at the kitchen table in his mother's house, in the room where she had prayed before meals and dried dishes and been quietly certain about everything that mattered, and held the two things together and understood that he had been paying attention even when he hadn't known it.
 
@@ -66,7 +66,7 @@ He thought about three weeks after the reveal, in the hospital corridor, when Ma
 
 He closed his hand around the ring.
 
-He was ready. He had been ready for three weeks, probably longer — the ring was just the admission of it. He would wait for the right moment, which did not mean the performed moment, the arranged moment, the one with champagne and a reservation and a speech he had memorised. He would wait for the moment that arrived the way the right photograph arrived — not because you had set it up, but because you had been paying enough attention to see it when it came.
+He was ready. He had been ready for three weeks, probably longer — the ring was just the admission of it. He would wait for the right moment, which did not mean the performed moment, the arranged moment, the one with champagne and a reservation and a speech he had memorized. He would wait for the moment that arrived the way the right photograph arrived — not because you had set it up, but because you had been paying enough attention to see it when it came.
 
 It would probably be the trail. It felt like the trail.
 

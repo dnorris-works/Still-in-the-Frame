@@ -4,7 +4,7 @@ He woke early on the Wednesday and lay still for a moment before he understood w
 
 Nothing was different. That was the thing. The room was the same room. The flat files were in the studio, where they had always been. The world had not rearranged itself to mark what he'd said at two in the morning.
 
-He made coffee and stood at the kitchen window. The city was doing what it always did — grey and continuous, the early commuters below in their coats. He watched them and thought about Celia's spring slot, about the specificity of *asking Celia*, about the moment a conversation held in the dark became a calendar date that other people knew about.
+He made coffee and stood at the kitchen window. The city was doing what it always did — gray and continuous, the early commuters below in their coats. He watched them and thought about Celia's spring slot, about the specificity of *asking Celia*, about the moment a conversation held in the dark became a calendar date that other people knew about.
 
 He was not afraid of it. He needed to be clear with himself about that.
 
@@ -26,7 +26,7 @@ Ethan kept his voice even. "When did she mention it?"
 
 "Part-time."
 
-"So this is portraits of her? Your photographs?" The uncomplicated curiosity of someone who didn't realise he was standing in the middle of anything. "What's the story?"
+"So this is portraits of her? Your photographs?" The uncomplicated curiosity of someone who didn't realize he was standing in the middle of anything. "What's the story?"
 
 The question sat in the air.
 

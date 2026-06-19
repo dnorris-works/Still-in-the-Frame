@@ -24,7 +24,7 @@ She heard Rachel make a sound that was somewhere between a gasp and a laugh.
 
 "I know."
 
-"He found Mum's brooch."
+"He found Mom's brooch."
 
 "He didn't — it's not the same piece. He said he didn't plan it. He just—"
 

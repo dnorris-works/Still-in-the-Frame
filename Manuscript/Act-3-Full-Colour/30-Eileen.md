@@ -24,7 +24,7 @@ She looked up when Maya came in and her face did the thing it always did — tha
 
 "Sit down. I ordered for you."
 
-Maya sat. The coffee arrived. She looked at her mother across the small table — the grey at her temples now more than the brown, the lines around her eyes that had deepened in the past few years, the particular quality of her stillness — and thought: she is not going to make it easy. She never does. Not because she doesn't want to. Because she doesn't know how.
+Maya sat. The coffee arrived. She looked at her mother across the small table — the gray at her temples now more than the brown, the lines around her eyes that had deepened in the past few years, the particular quality of her stillness — and thought: she is not going to make it easy. She never does. Not because she doesn't want to. Because she doesn't know how.
 
 "I have something to tell you," Maya said.
 

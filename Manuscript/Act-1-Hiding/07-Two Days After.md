@@ -18,7 +18,7 @@ Jake was being his usual warm self, which Maya appreciated more than she'd expec
 
 "I'm saying it again." Jake drank his beer. "Watch her. She's the same at this table as she was when you described her at the museum. A lot of people aren't."
 
-Ethan watched. Jake was right — there was no shift in her when the setting changed, no performance for new people, no version of herself adjusted for the audience. She was asking Priya a question now, leaning forward with her elbows on the table, genuinely wanting the answer. Priya was gesturing widely. Maya laughed at something — the real laugh, the one he'd been cataloguing since the first night — and Priya laughed too and pointed at her like she'd said exactly the right thing.
+Ethan watched. Jake was right — there was no shift in her when the setting changed, no performance for new people, no version of herself adjusted for the audience. She was asking Priya a question now, leaning forward with her elbows on the table, genuinely wanting the answer. Priya was gesturing widely. Maya laughed at something — the real laugh, the one he'd been cataloging since the first night — and Priya laughed too and pointed at her like she'd said exactly the right thing.
 
 "Good different," Jake said.
 
@@ -64,7 +64,7 @@ The conference room held thirty people and felt full.
 
 Maya stood at the lectern with her notes in front of her and didn't look at them. She'd written the talk six times. She knew it the way she knew the paintings she'd studied — not as information to be retrieved but as something lived in, walked through so many times the rooms were familiar.
 
-She looked at the room instead. Dr. Bowen in the second row, hands folded, watching with that particular expression that meant she was genuinely interested rather than professionally attentive. Three faculty she recognised. A dozen graduate students from her cohort, laptops open, pens ready. And at the back, arrived late and sitting very still so as not to draw attention, Ethan.
+She looked at the room instead. Dr. Bowen in the second row, hands folded, watching with that particular expression that meant she was genuinely interested rather than professionally attentive. Three faculty she recognized. A dozen graduate students from her cohort, laptops open, pens ready. And at the back, arrived late and sitting very still so as not to draw attention, Ethan.
 
 She hadn't told him the time. He'd asked Rachel, apparently, who had asked Zoe.
 

@@ -68,7 +68,7 @@ Jessica nodded, writing. "There's been some response on social media already —
 
 ---
 
-Partway through the evening, she saw an undergraduate she recognised from a seminar she'd taught in the autumn — a young man who had written a careful, honest paper about bodies and representation and the limits of what art could carry. He was standing in front of the third photograph alone, his hands in his pockets.
+Partway through the evening, she saw an undergraduate she recognized from a seminar she'd taught in the autumn — a young man who had written a careful, honest paper about bodies and representation and the limits of what art could carry. He was standing in front of the third photograph alone, his hands in his pockets.
 
 He stood there for a long time.
 

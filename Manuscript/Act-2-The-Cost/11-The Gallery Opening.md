@@ -1,12 +1,12 @@
 # Chapter 11: The Gallery Opening
 
-The show was called *Concealed/Revealed*, which had been Maya's idea and which she had not fully thought through until she was standing in the middle of the gallery at seven-fifteen on a Thursday evening in February — four months after the museum, three months after she had first proposed the show to Celia — watching people arrive, and realising she had spent three months curating an exhibition about herself.
+The show was called *Concealed/Revealed*, which had been Maya's idea and which she had not fully thought through until she was standing in the middle of the gallery at seven-fifteen on a Thursday evening in February — four months after the museum, three months after she had first proposed the show to Celia — watching people arrive, and realizing she had spent three months curating an exhibition about herself.
 
 Not intentionally. Or not consciously. But standing here now, with the white walls and the careful lighting and the work she had chosen piece by piece over the course of a semester, she could see it plainly — the thread running through every artist she'd selected, every image, every note she'd written for the wall text. All of them people who had hidden something true about themselves in their work. All of them eventually stepping out from behind it.
 
 She walked the room slowly, the way she always did before an opening. The east corner piece was doing what she'd asked. The figure in the doorway held its ambiguity. She stood in front of it for a moment, then moved on.
 
-The Hidden Gallery's director, a compact woman named Celia who wore the same grey blazer to every event and made it look like a different choice each time, fell into step beside her.
+The Hidden Gallery's director, a compact woman named Celia who wore the same gray blazer to every event and made it look like a different choice each time, fell into step beside her.
 
 "Full house tonight," Celia said. "We had six walk-ins this afternoon just from the window card."
 
@@ -18,7 +18,7 @@ The Hidden Gallery's director, a compact woman named Celia who wore the same gre
 
 Celia nodded once and moved away. Maya stood in the middle of the room and let the space settle around her. Thirty-seven pieces. Four months. Every choice she'd made in this room had been, she now understood, also a choice about herself — what she could bear to look at, what she found courage in, what she needed to believe was possible.
 
-Ethan was somewhere near the back with his camera. She could feel him without looking — the particular quality of his presence in a room, the way he moved around an edge rather than through a centre. She had given him full access for the night: document what you see. He had nodded and said nothing else, which was exactly right.
+Ethan was somewhere near the back with his camera. She could feel him without looking — the particular quality of his presence in a room, the way he moved around an edge rather than through a center. She had given him full access for the night: document what you see. He had nodded and said nothing else, which was exactly right.
 
 ---
 
@@ -52,11 +52,11 @@ Zoe caught her eye from the back and mouthed something that might have been *I'm
 
 She found it in the east corner, near the end of the show.
 
-She had almost not included it. It was smaller than the others — a mixed media piece, roughly A3, layered collage and ink. A figure standing in a doorway, lit from behind, the face not quite visible. And around the figure, covering almost every inch of the surface, fragments of text. Some printed, some handwritten, some barely legible. Bible verses, she'd realised on first examination. Old ones, the language formal and strange.
+She had almost not included it. It was smaller than the others — a mixed media piece, roughly A3, layered collage and ink. A figure standing in a doorway, lit from behind, the face not quite visible. And around the figure, covering almost every inch of the surface, fragments of text. Some printed, some handwritten, some barely legible. Bible verses, she'd realized on first examination. Old ones, the language formal and strange.
 
 The title was *Psalm 139*.
 
-She had read the psalm before hanging the piece. She knew it by heart now, though she hadn't meant to memorise it. *You knit me together in my mother's womb. I am fearfully and wonderfully made.* She had stood in front of it for a long time the day it arrived from the artist's studio, and then she had put it in the east corner because she didn't know what else to do with it and because she couldn't not include it.
+She had read the psalm before hanging the piece. She knew it by heart now, though she hadn't meant to memorize it. *You knit me together in my mother's womb. I am fearfully and wonderfully made.* She had stood in front of it for a long time the day it arrived from the artist's studio, and then she had put it in the east corner because she didn't know what else to do with it and because she couldn't not include it.
 
 She stood in front of it now, after the talk, while the room buzzed around her.
 

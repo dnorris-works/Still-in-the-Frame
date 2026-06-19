@@ -52,7 +52,7 @@ Ethan was quiet.
 
 Not the quiet of someone choosing words. The silence went on — five seconds, ten — long enough that she started to hear it differently. Long enough that she felt the first cold edge of something she hadn't expected: the possibility that she had finally handed him something he didn't know how to carry.
 
-She watched his face. He was looking at the lamp. His jaw was set in the particular way she recognised from the darkroom, from difficult conversations, from moments when he was keeping something contained that wanted to come out differently.
+She watched his face. He was looking at the lamp. His jaw was set in the particular way she recognized from the darkroom, from difficult conversations, from moments when he was keeping something contained that wanted to come out differently.
 
 "Ethan."
 
@@ -102,7 +102,7 @@ She had been afraid of being found for so long that she had forgotten being foun
 
 She slept at her own place that night — not as a withdrawal, just as a true thing; she had needed to be in her own space with her own quiet after the evening, and he had understood that without her having to explain it, which she had stopped being surprised by and started simply being grateful for.
 
-In the morning she woke early and lay in the grey light and thought about the prints. His photographs of her, stacked in flat files in his studio, made over months without either of them naming what they were accumulating toward. She thought about sitting beside him on the studio floor and opening each one. Her face, her body, her complete self — seen clearly, without flinching, by someone who had chosen to keep looking.
+In the morning she woke early and lay in the gray light and thought about the prints. His photographs of her, stacked in flat files in his studio, made over months without either of them naming what they were accumulating toward. She thought about sitting beside him on the studio floor and opening each one. Her face, her body, her complete self — seen clearly, without flinching, by someone who had chosen to keep looking.
 
 She got up, made coffee, and texted him. *This weekend. I mean it.*
 

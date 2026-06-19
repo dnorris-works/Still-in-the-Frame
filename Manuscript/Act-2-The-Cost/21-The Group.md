@@ -14,13 +14,13 @@ She went on Wednesday.
 
 The basement was low-ceilinged and warm, lit by two floor lamps someone had brought from home rather than the overhead fluorescents. Six chairs in a rough circle. A small table with a thermos of tea and a plate of biscuits that had the quality of something brought without discussion, as a matter of course. The kind of room where the ordinary things had been made comfortable with intention.
 
-Five people were already there when Maya arrived. Nancy was one of them, in the same green cardigan, pouring tea. The others looked up when Maya came in — briefly, without performance, the glance of people who recognised the particular quality of someone walking into this kind of room for the first time.
+Five people were already there when Maya arrived. Nancy was one of them, in the same green cardigan, pouring tea. The others looked up when Maya came in — briefly, without performance, the glance of people who recognized the particular quality of someone walking into this kind of room for the first time.
 
 "Maya," Nancy said. "Sit anywhere."
 
 She sat. She took the chair nearest the door, which she was aware was what you did when you weren't yet sure, and no one remarked on it.
 
-The others introduced themselves in the simple way of people who had been doing this long enough that the introductions were just names, not narratives. Marcus. Diane. Priya — a different Priya, younger, who caught Maya's eye and half-smiled. Jordan, who was perhaps thirty and who had a quality of deliberate stillness that Maya recognised from people who had learned the hard way to take up exactly the space they needed and no more. And Clare, older, in her fifties, who had brought the biscuits.
+The others introduced themselves in the simple way of people who had been doing this long enough that the introductions were just names, not narratives. Marcus. Diane. Priya — a different Priya, younger, who caught Maya's eye and half-smiled. Jordan, who was perhaps thirty and who had a quality of deliberate stillness that Maya recognized from people who had learned the hard way to take up exactly the space they needed and no more. And Clare, older, in her fifties, who had brought the biscuits.
 
 Nancy didn't lead so much as hold. She asked a question and the room answered it in pieces, each person adding what they had, and Maya sat and listened and felt the particular quality of a conversation she had not known was possible — people talking about bodies and faith and belonging and rejection and the specific texture of being someone the institution didn't have a category for, speaking plainly, without performance or apology.
 
@@ -36,7 +36,7 @@ Maya looked at her tea. She had been composing a version of herself to offer thi
 
 "I'm intersex," she said. "I've known since I was sixteen and I've told four people in ten years." She paused. "I'm trying to tell more."
 
-The room received it the way the room received everything — steadily, without drama. Jordan nodded once. Clare said nothing but her expression changed slightly, the particular shift of someone who recognised a weight they had also carried.
+The room received it the way the room received everything — steadily, without drama. Jordan nodded once. Clare said nothing but her expression changed slightly, the particular shift of someone who recognized a weight they had also carried.
 
 "That's why you're here," Nancy said. Not a question.
 
@@ -50,7 +50,7 @@ Maya looked at her.
 
 The conversation moved on — back to Jordan, back to Clare — and Maya sat in her chair near the door and drank her tea and listened and felt the specific quality of a room where she did not have to explain herself from the beginning, where the people around her already understood the grammar of what she was trying to say. She had not known such a room existed outside of the internet, outside of the private, outside of two in the morning with a screen.
 
-At nine o'clock Nancy called it gently to a close. People gathered coats, thanked each other in the quiet way of people who would see each other next week. Maya stood and Jordan appeared beside her — he was taller than she'd realised, and had the particular quality of someone who moved through the world carefully because they had learned they had to.
+At nine o'clock Nancy called it gently to a close. People gathered coats, thanked each other in the quiet way of people who would see each other next week. Maya stood and Jordan appeared beside her — he was taller than she'd realized, and had the particular quality of someone who moved through the world carefully because they had learned they had to.
 
 "First time is the hardest," he said.
 

@@ -4,7 +4,7 @@ He asked on a Sunday.
 
 Not formally — not with any of the weight the moment deserved or that she had expected, in all the years she had imagined it. He asked the way he asked most things: quietly, with room for her to answer or not answer, with no indication that there was a wrong response.
 
-They were on his couch. She was reading. He had his sketchpad out — not drawing, just making the kind of loose marks he made when his hands needed to be doing something while his mind did something else. The city was grey outside. The heating was on.
+They were on his couch. She was reading. He had his sketchpad out — not drawing, just making the kind of loose marks he made when his hands needed to be doing something while his mind did something else. The city was gray outside. The heating was on.
 
 "Can I ask you something?"
 
@@ -36,7 +36,7 @@ He set the sketchpad down.
 
 She had known this part was coming.
 
-"Bret," she said. "He was a critic. Arts journalism — reviews, exhibition pieces, that kind of thing. We met at an opening. I knew his work before I knew him, which I think was part of why I trusted him." She paused. "I'd had sex before — a few times, with a few different people. Always the same way, always me in control of the angle, the light, keeping it brief. It would last a few weeks and then they'd want more — more light, different positions, slower — and I'd feel the exit coming and I'd take it. End things before anyone found anything." A small, humourless breath. "I got very good at that. Leaving before I got found."
+"Bret," she said. "He was a critic. Arts journalism — reviews, exhibition pieces, that kind of thing. We met at an opening. I knew his work before I knew him, which I think was part of why I trusted him." She paused. "I'd had sex before — a few times, with a few different people. Always the same way, always me in control of the angle, the light, keeping it brief. It would last a few weeks and then they'd want more — more light, different positions, slower — and I'd feel the exit coming and I'd take it. End things before anyone found anything." A small, humorless breath. "I got very good at that. Leaving before I got found."
 
 He didn't say anything. Just listened.
 
@@ -64,7 +64,7 @@ She pressed her lips together.
 
 She laughed — a short, surprised sound, the kind that arrived when something landed in exactly the right place.
 
-They sat with it for a while. The grey afternoon outside. His thumb moving slowly over the back of her hand.
+They sat with it for a while. The gray afternoon outside. His thumb moving slowly over the back of her hand.
 
 After a moment she said: "There's one other thing."
 
@@ -98,7 +98,7 @@ She was quiet for a moment.
 
 "Or," he said, carefully, "maybe it wasn't that God let it happen. Maybe God knew you needed something Bret couldn't give you."
 
-He didn't say anything else. He let it sit there in the grey afternoon like something that didn't need to be decided today.
+He didn't say anything else. He let it sit there in the gray afternoon like something that didn't need to be decided today.
 
 She looked at him.
 
@@ -116,7 +116,7 @@ He looked up.
 
 She left without explaining further because she didn't have an explanation. She was out the door and down the stairs and onto the street before she could name what had happened, and even then she couldn't quite reach it. Not anger at him. Not exactly. Something more like being offered a comfort she wasn't ready for and not having the grace to receive it quietly.
 
-She walked six blocks without deciding to. The city was grey and ordinary around her.
+She walked six blocks without deciding to. The city was gray and ordinary around her.
 
 She took out her phone twice. Put it away both times.
 
@@ -140,4 +140,4 @@ She stood in the doorway for a moment. "I'm not ready to believe God planned any
 
 "Okay," he said. Just that.
 
-She came back in. He made tea she didn't ask for. They sat at opposite ends of the couch and didn't touch and the grey afternoon continued outside and neither of them tried to fix what had happened or explain it away, and eventually she picked up her book again and he picked up his sketchpad and the room settled around them, imperfect and quiet and real.
+She came back in. He made tea she didn't ask for. They sat at opposite ends of the couch and didn't touch and the gray afternoon continued outside and neither of them tried to fix what had happened or explain it away, and eventually she picked up her book again and he picked up his sketchpad and the room settled around them, imperfect and quiet and real.
