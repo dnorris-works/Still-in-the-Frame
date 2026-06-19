@@ -10,7 +10,7 @@ Riverside Community Church sat at the end of the block, the way it always had, t
 
 Tonight she stopped.
 
-Through the windows she could see people. Standing, then sitting. She was too far away to hear the words but she could hear the shape of it — voices together, the low swell of something being sung. Not performed. Just — offered. The particular quality of a room full of people who believed they belonged there.
+Through the windows she could see people. Standing, then sitting. She was too far away to hear the words but she could hear the shape of it — voices together, the low swell of something being sung. Not performed. Just — offered. The sound of a room full of people who believed they belonged there.
 
 She stood on the pavement and looked at it for a long time.
 

@@ -16,7 +16,7 @@ He replied within two minutes: *Congratulations. What kind.*
 
 *That's the right choice.*
 
-She stood on the library steps in the April sun eating a sandwich and felt the particular flatness of a thing that had been approaching for so long that its arrival couldn't quite be believed, and was glad that nobody was expecting her to perform the relief of it.
+She stood on the library steps in the April sun eating a sandwich and felt the flatness that comes when something long-anticipated finally arrives, and was glad that nobody was expecting her to perform the relief of it.
 
 ---
 
@@ -64,7 +64,7 @@ She weighed it, literally, bouncing it once in her palm.
 
 She sat.
 
-Bowen set the thesis on the desk and looked at her over her glasses with the particular attention she reserved for things that actually interested her.
+Bowen set the thesis on the desk and looked at her over her glasses with the focused attention she reserved for things that actually interested her.
 
 "And now?" she said.
 
@@ -118,7 +118,7 @@ She kept going.
 
 On a Friday evening she was at Ethan's house — her kitchen now, she had started thinking, though she had not said so out loud, and there was something she liked about the private claim of it, the fact that it was hers before she named it — and she was making tea and he was at the kitchen table looking at contact sheets with a loupe and neither of them was talking, and she stood at the stove waiting for the kettle and looked around the room.
 
-The print on the wall by the door — a street scene, two women, the younger one saying something that was making the older one laugh. The books on the shelf above the radiator, sorted by subject, which she had initially found endearing and now took for granted in the way you took for granted the things that were simply true about a person. The coat hooks where his coat and hers hung in the particular proximity of two people who lived in the same space without having made a formal decision about it.
+The print on the wall by the door — a street scene, two women, the younger one saying something that was making the older one laugh. The books on the shelf above the radiator, sorted by subject, which she had initially found endearing and now took for granted in the way you took for granted the things that were simply true about a person. The coat hooks where his coat and hers hung close together, the way two people's coats do when they've been sharing a space long enough not to think about it.
 
 The kettle began.
 

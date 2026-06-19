@@ -16,11 +16,11 @@ Across the room, a middle-aged woman stopped in front of the first photograph �
 
 She did. The gallery was full, but it wasn't the usual opening night crowd rushing between pieces. People were stopping, taking time with each image. A young couple stood before the third photograph — the one where she faced the camera fully, Ethan's arms around her. They were holding hands. The woman was wiping tears from her cheeks.
 
-"It's not what I expected," the woman was saying. "It's so... dignified. Beautiful."
+"It's not what I expected," the woman was saying. "It's just — so honest."
 
-Something eased in Maya's chest.
+Maya looked at them for a moment, then looked away.
 
-Dr. Harrison found them near the entrance, her professional composure not quite hiding her satisfaction. "The conversation is exactly what we hoped for," she said. "Thoughtful. Respectful."
+Dr. Harrison found them near the entrance. "People are taking their time with it," she said. "I haven't seen a crowd move this slowly through a gallery in years."
 
 Maya nodded. She was still watching the room.
 
@@ -28,11 +28,11 @@ Maya nodded. She was still watching the room.
 
 "Maya."
 
-She turned to find Nancy Griffin approaching with Pastor James. Maya had invited the entire Wednesday group, along with the church leadership. Seeing them here felt like worlds colliding in the best possible way.
+She turned to find Nancy Griffin approaching with Pastor James. Nancy had come with Jordan and Diane from the Wednesday group; Pastor James had come alone, early, and Maya had spotted him near the east wall twenty minutes before the room filled. Seeing them here alongside the gallery crowd — the theologians and the collectors, the curator and the congregation — felt less like collision than convergence. Like the same room had always had room for all of them.
 
 "Nancy." She embraced her. "Thank you for coming."
 
-"I wouldn't have missed this." Nancy looked toward the photographs. "They're profound. They tell a story about being fearfully and wonderfully made."
+"I wouldn't have missed this." Nancy looked toward the photographs — not a quick scan, a proper look, the same she gave to sermons she was still working out. "They're exactly right," she said finally. "I knew they would be."
 
 An unknown woman appeared at Maya's elbow — fiftyish, no name badge, no affiliation Maya could place. She had been standing in front of the second photograph for a long time before making her way across the room.
 
@@ -56,15 +56,21 @@ She looked at the three photographs in sequence.
 
 A young woman with a notebook and a press credential. "Jessica Chen, Arts Quarterly. Could I ask you a few questions?"
 
-"Of course."
+"Yes."
 
-"This is groundbreaking work — the first intersex nude exhibition in fine art. What inspired you to share something so personal in such a public way?"
+"The exhibition notes say you're both curator and subject. What made you decide to be in the photographs rather than behind them?"
 
-Maya looked across the gallery. "For too long, intersex people have existed in medical textbooks and whispered conversations. These photographs show what it looks like to be completely known and completely accepted. That's a universal human need, but it's something intersex people are often told we can't have."
+Maya glanced at the nearest print. "I'd been writing about other people's hidden narratives for two years. At some point that becomes its own kind of dishonesty."
 
-Jessica nodded, writing. "There's been some response on social media already — criticism from certain religious groups. Are you prepared for backlash?"
+Jessica wrote something. "Some people will say this is too personal for a museum context. That it blurs the line between art and—" She paused, choosing her word.
 
-"I'm prepared for people to disagree," Maya said. "What I hope is that this opens conversations." She paused. "Art has always done that."
+"Between art and confession?" Maya said. "I don't think those are different things. The best work has always been confession. The only question is whether you frame it yourself or let someone else frame it for you."
+
+Jessica looked up. "And if someone frames it badly—"
+
+"Then you've already answered that question by being here first."
+
+Jessica wrote that down without asking her to elaborate.
 
 ---
 

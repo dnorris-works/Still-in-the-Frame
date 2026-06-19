@@ -14,7 +14,7 @@ She had almost made herself believe that.
 
 ---
 
-The café was the one on the corner of Millbank, which Eileen had been going to since Maya was small. A narrow room, green tiles, the particular smell of proper coffee and something baking in the back. Eileen was already there when Maya arrived — she was always already there, that was a constant, she arrived early the way other people breathed — sitting at the table by the window with her coat folded on the chair beside her and her hands around a cup.
+The café was the one on the corner of Millbank, which Eileen had been going to since Maya was small. A narrow room, green tiles, the smell of proper coffee and something baking in the back. Eileen was already there when Maya arrived — she was always already there, that was a constant, she arrived early the way other people breathed — sitting at the table by the window with her coat folded on the chair beside her and her hands around a cup.
 
 She looked up when Maya came in and her face did the thing it always did — that immediate, involuntary softening that had always made Maya feel both loved and unsettled, because it was so clearly true and so clearly incomplete.
 
@@ -24,7 +24,7 @@ She looked up when Maya came in and her face did the thing it always did — tha
 
 "Sit down. I ordered for you."
 
-Maya sat. The coffee arrived. She looked at her mother across the small table — the gray at her temples now more than the brown, the lines around her eyes that had deepened in the past few years, the particular quality of her stillness — and thought: she is not going to make it easy. She never does. Not because she doesn't want to. Because she doesn't know how.
+Maya sat. The coffee arrived. She looked at her mother across the small table — the gray at her temples now more than the brown, the lines around her eyes that had deepened in the past few years, the way she held herself perfectly still — and thought: she is not going to make it easy. She never does. Not because she doesn't want to. Because she doesn't know how.
 
 "I have something to tell you," Maya said.
 
@@ -134,7 +134,7 @@ Eileen looked at it for a long time. The dark green stone. The simple gold band.
 
 "It suits you," she said.
 
-She did not say anything else. She kissed Maya once on the cheek, the way she had always done, with the particular warmth that had always been real and always insufficient, and then she turned and walked toward the tube.
+She did not say anything else. She kissed Maya once on the cheek, the way she had always done, with the warmth that had always been real and always insufficient, and then she turned and walked toward the tube.
 
 Maya watched her go.
 

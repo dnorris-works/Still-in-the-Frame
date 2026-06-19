@@ -84,4 +84,4 @@ Maya started laughing — not the careful laugh she'd perfected over years of ma
 
 She thought about it. About the teenager who had looked for a name in a school library and never quite found one. About the woman who had managed angles and exits and carefully constructed versions of herself. About standing in Nancy's basement saying *I'm intersex* to five strangers who became family.
 
-"Like coming home to myself," she said.
+"Strange," she said. "Like I've been saying the sideways version for years and I finally just said the thing."

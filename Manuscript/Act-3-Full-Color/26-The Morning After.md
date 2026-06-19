@@ -2,15 +2,15 @@
 
 She woke before he did.
 
-The light was the particular early-morning quality of April — thin and clean, coming through the gap in the curtains at an angle that suggested the city outside was already awake but had decided not to make much of it yet. She lay still for a moment and listened to Ethan's breathing and the distant sound of a bus and let the night come back to her in pieces.
+April light came thin and clean through the gap in the curtains, at an angle that suggested the city outside was already awake but had decided not to make much of it yet. She lay still for a moment and listened to Ethan's breathing and the distant sound of a bus and let the night come back to her in pieces.
 
-The room. The forty-two photographs. Bowen: *this is the thesis.* Zoe's arms, the particular warmth of that. Nancy's nod. Jordan and Diane near the entrance, staying until nearly the end. The woman she didn't know who had said *I didn't know this was possible.*
+The room. The forty-two photographs. Bowen: *this is the thesis.* Zoe's arms around her. Nancy's nod. Jordan and Diane near the entrance, staying until nearly the end. The woman she didn't know who had said *I didn't know this was possible.*
 
 Bret's notebook, still empty, in his jacket pocket. The door swinging shut.
 
 *It's done*, she had said.
 
-She lay in the morning light and held that. She had expected to feel something more dramatic on the other side of it — some large release, the emotional equivalent of a door blown off its hinges. Instead there was this: the light through the curtains, Ethan asleep beside her, a quiet in her chest that was not the quiet of absence but the quiet of something settled. The particular feeling of someone who had survived something they expected to be worse and was still taking stock of the fact.
+She lay in the morning light and held that. She had expected to feel something more dramatic on the other side of it — some large release, the emotional equivalent of a door blown off its hinges. Instead there was this: the light through the curtains, Ethan asleep beside her, a quiet in her chest that was not the quiet of absence but the quiet of something settled. The feeling of someone who had survived something they expected to be worse and was still taking stock of the fact.
 
 She got up quietly and went to the kitchen.
 
@@ -30,7 +30,7 @@ He made his coffee and came to sit across from her at the table.
 
 She thought about it properly. "Like I put something down that I'd been carrying so long I'd stopped noticing the weight." A pause. "And a bit strange. Like the weight being gone is its own kind of thing to get used to."
 
-He nodded. He drank his coffee. He didn't try to improve on what she'd said, which was one of the things.
+He nodded. He drank his coffee. He didn't try to improve on what she'd said. That was one of the things about him.
 
 They sat in the morning quiet and the light moved across the kitchen floor the way morning light moves — slowly, without urgency, as if the day had agreed not to press.
 
@@ -66,7 +66,7 @@ Later he opened his laptop on the kitchen table and showed her the photographs f
 
 She looked at them one by one.
 
-There was one of her with Bowen — she was talking and her hands were slightly raised in the particular gesture she made when she was making a precise point, and her face was the face of someone who knew exactly what they were saying and was not afraid of it. There was one of her with Zoe, from just after the embrace, both of them still holding on a little, Zoe's eyes bright, Maya's chin on Zoe's shoulder and her eyes closed. There was one from later in the evening where she was alone near the east wall, her back partly to the camera, looking at one of the prints — looking at herself — and her posture was entirely open.
+There was one of her with Bowen — she was talking and her hands were slightly raised in the gesture she made when she was making a precise point, and her face was the face of someone who knew exactly what they were saying and was not afraid of it. There was one of her with Zoe, from just after the embrace, both of them still holding on a little, Zoe's eyes bright, Maya's chin on Zoe's shoulder and her eyes closed. There was one from later in the evening where she was alone near the east wall, her back partly to the camera, looking at one of the prints — looking at herself — and her posture was entirely open.
 
 She looked at that one for a long time.
 

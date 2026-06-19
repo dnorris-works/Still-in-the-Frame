@@ -2,7 +2,7 @@
 
 She told Zoe everything before the coffee finished brewing.
 
-Zoe was already on the couch when Maya came out of her room — blanket pulled up to her chin, both hands around a mug, awake in the particular way of someone who had heard the apartment door the night before and filed it away to ask about in the morning. She didn't say anything. She just looked at Maya the way she always did when she was waiting — open, unhurried, making room.
+Zoe was already on the couch when Maya came out of her room — blanket pulled up to her chin, both hands around a mug, awake in the way of someone who had heard the apartment door the night before and filed it away to ask about in the morning. She didn't say anything. She just looked at Maya the way she always did when she was waiting — open, unhurried, making room.
 
 Maya was not, as a rule, a person who talked about things. She processed privately, filed things away, returned to them alone at two in the morning when the apartment was quiet and there was nothing to distract her from her own thoughts. She'd been doing it since she was sixteen and had found that private suffering was at least controllable, which was more than she could say for the public kind.
 
@@ -40,7 +40,7 @@ She knew. She knew all of this. She sat down at the kitchen table with her phone
 
 "I just don't want to want this too much," she said.
 
-Zoe was quiet for a moment. Outside, the city was starting its Saturday — she could hear it through the window, the particular low frequency of a morning that had nowhere urgent to be.
+Zoe was quiet for a moment. Outside, the city was starting its Saturday — she could hear it through the window, the low hum of a morning with nowhere urgent to be.
 
 "Can I say something?" Zoe asked.
 

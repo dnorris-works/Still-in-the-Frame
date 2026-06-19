@@ -18,7 +18,7 @@ What it said was that he had not been sure how Jake would take it.
 
 ---
 
-The Crown was the right pub for it. Low-ceilinged, good beer, a corner table they had been using since they were twenty-four. Jake was already there when Ethan arrived — again, Jake was always already there — with two pints and the particular quality of stillness that meant he was thinking about something specific.
+The Crown was the right pub for it. Low-ceilinged, good beer, a corner table they had been using since they were twenty-four. Jake was already there when Ethan arrived — again, Jake was always already there — with two pints and a stillness that meant he was thinking about something specific.
 
 Ethan sat down. Picked up the pint.
 
@@ -54,7 +54,7 @@ Jake was quiet.
 
 "Then what are you trying to say."
 
-The silence went on long enough that Ethan had time to catalog the room — the table of women near the window, the barman changing a barrel, the particular smell of the Crown that had been the same since their mid-twenties and had become a kind of constancy he hadn't known he relied on.
+The silence went on long enough that Ethan had time to catalog the room — the table of women near the window, the barman changing a barrel, the smell of the Crown that had been the same since their mid-twenties and had become a kind of constancy he hadn't known he relied on.
 
 "I went to the exhibition," Jake said.
 
@@ -104,7 +104,7 @@ Jake was quiet for a moment. Then he said: "I want to meet her properly. Not the
 
 "I know. I'm terrible at speeches. You've seen me try." He picked up his glass at last. "I want her to know that I understand what she did, and that I'm — that I'm proud to know her. Which I recognize is not mine to feel. But I do."
 
-Ethan looked at his oldest friend across the corner table of the pub they had been using for ten years. The good and the complicated of ten years, the specifics of this particular man — his directness, which was also occasionally his slowness, the loyalty that ran underneath it all like water under ground, the fact that he had come here tonight and said the hard thing instead of letting it become permanent silence.
+Ethan looked at his oldest friend across the corner table of the pub they had been using for ten years. The good and the complicated of ten years, the specifics of this man — his directness, which was also occasionally his slowness, the loyalty that ran underneath it all like water under ground, the fact that he had come here tonight and said the hard thing instead of letting it become permanent silence.
 
 "She'll like that," Ethan said. "She'll also probably make it easy for you, which you don't deserve."
 
@@ -114,7 +114,7 @@ Jake laughed — the short, surprised sound of a man caught off guard by his own
 
 "I know." Jake looked at his pint. "I've seen how she is with you. I've seen it since the pub in November when you were both pretending you weren't already — whatever you were." He shook his head. "She makes you easier too. Have I told you that? You're—" He considered. "You used to keep things at a distance. Not people — you were never cold. But there was always the sense that the best part of you was somewhere else. Being saved." He looked at Ethan. "It isn't anymore."
 
-Ethan thought about Maya in the kitchen that morning, her hands around a mug, telling him about the anthology Jordan had mentioned, the new project, the thing she was turning over. The particular quality of her voice when she was thinking aloud — not performing it for him, just letting him be in the room while she thought. He thought about how ordinary it was. How it had become ordinary without him noticing, and how that was the whole point of it.
+Ethan thought about Maya in the kitchen that morning, her hands around a mug, telling him about the anthology Jordan had mentioned, the new project, the thing she was turning over. The sound of her voice when she was thinking aloud — not performing it for him, just letting him be in the room while she thought. He thought about how ordinary it was. How it had become ordinary without him noticing, and how that was the whole point of it.
 
 "No," he said. "It isn't."
 
@@ -130,7 +130,7 @@ Ethan raised his.
 
 They stayed another hour. They talked about other things — Priya's case, a show at the Whitechapel that Jake had opinions about, the question of Ethan's next project which Ethan said was undecided and Jake said was clearly already decided. The conversation settled into the familiar register of two people who had known each other long enough to move between serious and easy without marking the transition.
 
-Walking home, Ethan turned the evening over. Not with anxiety — with something quieter than that. The particular feeling of a thing that had been held at a careful distance for months finally brought into the room and looked at directly. Not clean. Not finished. But moved.
+Walking home, Ethan turned the evening over. Not with anxiety — with something quieter than that. The feeling of a thing held at careful distance for months finally brought into the room and looked at directly. Not clean. Not finished. But moved.
 
 He thought about the card Maya had kept. The way she had read it twice.
 

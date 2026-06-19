@@ -16,7 +16,7 @@ A pause.
 
 Another pause, longer. The lock turned.
 
-She looked terrible. Her hair was loose and unwashed, pulled back unevenly. She was wearing an oversized sweatshirt and no socks and had the particular hollowness around the eyes of someone who hadn't slept well. She looked at the bag in his hand, then at him.
+She looked terrible. Her hair was loose and unwashed, pulled back unevenly. She was wearing an oversized sweatshirt and no socks and had a hollowness around the eyes of someone who hadn't slept well. She looked at the bag in his hand, then at him.
 
 "You didn't have to do that."
 
@@ -24,7 +24,7 @@ She looked terrible. Her hair was loose and unwashed, pulled back unevenly. She 
 
 She stepped back.
 
-The house was dim, curtains half-drawn, the particular quiet of a space accommodating illness. He found the kitchen, ladled soup into a bowl he located after one wrong cupboard, and brought it to the couch where she'd resettled herself under a blanket.
+The house was dim, curtains half-drawn, the quiet of a space accommodating illness. He found the kitchen, ladled soup into a bowl he located after one wrong cupboard, and brought it to the couch where she'd resettled herself under a blanket.
 
 "Eat," he said.
 
@@ -40,7 +40,7 @@ She looked at him over the bowl with an expression that was too tired to be prop
 
 "Maya."
 
-He read aloud from where the book fell open — a passage about Dorothea Lange and the particular ethical weight of documentary photography, the responsibility of the person holding the camera. He had opinions about it. He kept them to himself.
+He read aloud from where the book fell open — a passage about Dorothea Lange and the ethical weight of documentary photography, the responsibility of the person holding the camera. He had opinions about it. He kept them to himself.
 
 She ate half the soup without noticing she was doing it.
 

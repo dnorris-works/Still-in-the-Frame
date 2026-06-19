@@ -12,7 +12,7 @@ She walked in. He closed the door. She stood in the middle of his living room in
 
 "He's going to destroy us," she said.
 
-She heard how it sounded as she said it — the particular flatness of a fear that had been managed for several hours and had finally stopped being manageable. Not a question. Not even quite a statement. Just the thing that had been in the room all evening, finally named.
+She heard how it sounded as she said it — the flat weight of a fear that had been managed for several hours and had finally stopped being manageable. Not a question. Not even quite a statement. Just the thing that had been in the room all evening, finally named.
 
 Ethan didn't move toward her. He sat on the edge of the couch and looked at her steadily.
 

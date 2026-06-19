@@ -1,6 +1,6 @@
 # Chapter 13: Ordinary Days
 
-November arrived without ceremony and the city adjusted — heavier coats, earlier dark, the particular quality of light through cloud that made everything look considered. Maya adjusted with it.
+November arrived without ceremony and the city adjusted — heavier coats, earlier dark, gray light through cloud that made everything look considered. Maya adjusted with it.
 
 She noticed she was adjusting. That was new.
 
@@ -106,7 +106,7 @@ After a while he said: "When does Bowen want the final draft?"
 
 "I know how many weeks it is, Ethan."
 
-He looked up. Something in her voice had shifted — not sharp, but closed off, the particular flatness that arrived when she felt managed.
+He looked up. Something in her voice had shifted — not sharp, but closed off, the flatness that arrived when she felt managed.
 
 "I wasn't—" he started.
 

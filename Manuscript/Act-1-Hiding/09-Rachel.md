@@ -38,7 +38,7 @@ Rachel asked good questions. Not polite ones — real ones, the kind that requir
 
 Ethan refilled the coffee.
 
-After the plates were cleared, Ethan went to take a call from Jake about the March open show, and Rachel and Maya stayed at the table with their second coffees and the particular ease of two people who've already passed the part of a first meeting where either of them could have decided not to bother.
+After the plates were cleared, Ethan went to take a call from Jake about the March open show, and Rachel and Maya stayed at the table with their second coffees and the ease of two people who've already passed the part of a first meeting where either of them could have decided not to bother.
 
 "He's different since he met you," Rachel said.
 

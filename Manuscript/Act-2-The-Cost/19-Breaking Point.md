@@ -52,7 +52,7 @@ Ethan was quiet.
 
 Not the quiet of someone choosing words. The silence went on — five seconds, ten — long enough that she started to hear it differently. Long enough that she felt the first cold edge of something she hadn't expected: the possibility that she had finally handed him something he didn't know how to carry.
 
-She watched his face. He was looking at the lamp. His jaw was set in the particular way she recognized from the darkroom, from difficult conversations, from moments when he was keeping something contained that wanted to come out differently.
+She watched his face. He was looking at the lamp. His jaw was set in the way she recognized from the darkroom, from difficult conversations, from moments when he was keeping something contained that wanted to come out differently.
 
 "Ethan."
 

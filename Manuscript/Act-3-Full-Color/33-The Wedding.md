@@ -28,7 +28,7 @@ Pastor James had said yes immediately. Nancy had said yes and then said: *I've b
 
 The morning was October.
 
-The particular quality of October light — lower than summer, more specific, the kind that made everything look slightly more itself than it did in other months — came through the bedroom curtains at seven-fifteen and Maya lay in it for a while without moving.
+October light — lower than summer, more specific, the kind that made everything look slightly more itself than it did in other months — came through the bedroom curtains at seven-fifteen and Maya lay in it for a while without moving.
 
 She was at Zoe's. She had stayed the night before the wedding in her old room, in the flat she had not quite stopped thinking of as home, because Zoe had asked and because it seemed right to begin the day from the place where most of the hiding had happened, and end it somewhere else entirely.
 
@@ -52,7 +52,7 @@ Zoe did up the buttons at the back and then stood with her hands on Maya's shoul
 
 ---
 
-The church smelled of October and old stone and the particular warmth of a space that had been full of people for hours already, the heat of bodies and flowers and the candles Celia had insisted on along the window ledges.
+The church smelled of October and old stone and the warmth of a room that had been filling for hours, the heat of bodies and flowers and the candles Celia had insisted on along the window ledges.
 
 Maya stood in the entrance with her father.
 
@@ -76,7 +76,7 @@ Jordan from the group sat two rows back, with Diane beside her.
 
 Bowen was there, in the middle, with a colleague Maya didn't recognize, which was entirely in character.
 
-Jake sat near the back, slightly apart, in the particular posture of a man still carrying something he hadn't yet put down. He had sent a card after the engagement — handwritten, longer than she had expected, and she had read it twice and kept it. It was not the full reckoning she had once imagined. It was a beginning of one.
+Jake sat near the back, slightly apart, in the posture of a man still carrying something he hadn't yet put down. He had sent a card after the engagement — handwritten, longer than she had expected, and she had read it twice and kept it. It was not the full reckoning she had once imagined. It was a beginning of one.
 
 Rachel stood at the front, on Ethan's side, in the deep green she had chosen after three weeks of opinions about which Rachel had been entirely correct, her hair pinned up, her face doing the thing Ethan's face did when something genuinely moved her — the effort of containment visible in the jaw.
 
@@ -98,7 +98,7 @@ She was ready.
 
 ---
 
-She walked through the door and the church went quiet in the particular way of a room that has been full of sound and then sees the thing it has been waiting for.
+She walked through the door and the church went quiet the way a room does when it sees the thing it has been waiting for.
 
 She walked up the aisle and looked at him and he looked at her and neither of them looked away and she was aware, peripherally, of the photographs on the walls — her own life on either side of her as she walked through it — and as she passed the front row she saw Eileen looking at the library photograph on the wall beside her, the one of Maya bent over a book in winter light, absorbed; and then Eileen looked at her, directly, completely, without looking away, the way she had never quite managed before, in all the years of careful presence and careful silence — and Maya let her, held her gaze for one full step, and then looked back at Ethan, because that was where she was, and where she was going to be.
 
@@ -110,7 +110,7 @@ He took both her hands. His grip was firm. She could feel him breathing.
 
 "Hello," she said.
 
-Nancy Griffin looked at them both over her glasses with the calm authority of someone who had seen many things in many years and had been waiting for this particular thing longer than they knew.
+Nancy Griffin looked at them both over her glasses with the calm authority of someone who had seen many things in many years and had been waiting for this longer than they knew.
 
 "We are gathered," she said, "in the presence of God and of these witnesses, to celebrate a love that has already proven itself — in silence and in speech, in hiding and in light, in the private moments and the public ones." She paused. "I know something about the journey that brought these two people to this altar. I will not describe it. You are standing in it."
 
@@ -148,7 +148,7 @@ She was crying before Ethan did. He reached for Maya's hands as the noise of the
 
 Pastor James said the words. Nancy Griffin gave the blessing — brief, precise, the theology of it carried in four sentences that said everything and explained nothing, which was exactly her register.
 
-The rings were exchanged. Rachel produced Ethan's without drama and with the particular expression of someone who had been waiting for this specific moment for two years. Zoe produced Maya's and then had to briefly compose herself before handing it over, which she managed, barely.
+The rings were exchanged. Rachel produced Ethan's without drama, her face carrying two years of waiting for this moment. Zoe produced Maya's and then had to briefly compose herself before handing it over, which she managed, barely.
 
 *I now pronounce you married.*
 
@@ -164,9 +164,9 @@ She laughed. The room laughed with her.
 
 ---
 
-They walked back down the aisle together through the photographs — the trail, the ridge, the library, the waterfront — through the faces of the people who had witnessed the journey between the person she had been in Gallery Six and the person she was now, two years and a whole life later, in the particular October light of a church that smelled of stone and candles and had this morning held every thread of her story on its walls.
+They walked back down the aisle together through the photographs — the trail, the ridge, the library, the waterfront — through the faces of the people who had witnessed the journey between the person she had been in Gallery Six and the person she was now, two years and a whole life later, in the October light of a church that smelled of stone and candles and had this morning held every thread of her story on its walls.
 
-Outside, the city was doing what cities do on October Saturdays — going about its business, indifferent to the specific fact of this wedding on this street, the cars and the leaves and the particular quality of the light that made everything slightly more itself.
+Outside, the city was doing what cities do on October Saturdays — going about its business, indifferent to the specific fact of this wedding on this street, the cars and the leaves and the quality of October light that made everything slightly more itself.
 
 She stepped into it with her hand in his.
 

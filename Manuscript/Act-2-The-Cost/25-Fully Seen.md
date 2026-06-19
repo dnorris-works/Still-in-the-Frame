@@ -22,7 +22,7 @@ It was a good photograph. She could see that clearly — the composition, the li
 
 "Yes," she said, and put it with the others.
 
-He nodded once and didn't say anything, which was exactly right.
+He nodded once and didn't say anything, which was right.
 
 By the third Saturday they had forty-two images. She laid them out across the studio wall with painter's tape and stood back and looked at what they were.
 
@@ -66,7 +66,7 @@ Then she sat for a moment in the empty gallery with the forty-two photographs on
 
 The opening was on a Friday in April.
 
-Spring had arrived in the tentative way of a city that didn't quite trust it yet — the trees coming into leaf, the evenings loosening, the particular quality of light that felt like permission after a long time without it. Maya stood in the Hidden Gallery at six-fifteen while Celia made final adjustments to the track lighting and felt the room settle around her the way rooms settled when they were ready.
+Spring had arrived in the tentative way of a city that didn't quite trust it yet — the trees coming into leaf, the evenings loosening, a quality of light that felt like permission after a long time without it. Maya stood in the Hidden Gallery at six-fifteen while Celia made final adjustments to the track lighting and felt the room settle around her the way rooms settled when they were ready.
 
 Forty-two photographs. Her face, her body, her life — every image chosen, every one hers. She had written the exhibition notes herself, four hundred words that said plainly what the work was and who the artist was and what she was doing. She had not hedged. She had not managed. She had written the true thing and put her name on it.
 
@@ -94,7 +94,7 @@ She found Zoe near the kitchen-table image. Zoe had not moved from it. When Maya
 
 "There you are," Zoe said into her hair. "Finally. There you actually are."
 
-Maya held on and felt the warmth of it and the particular relief of being known by someone who had been watching you hide for years and had never once demanded you stop.
+Maya held on and felt the warmth of it and the relief of being known by someone who had been watching you hide for years and had never once demanded you stop.
 
 Rachel found her twenty minutes later, near the entrance. She had been through the whole room — Maya had caught glimpses of her moving through it slowly, the way she moved through exhibitions, giving each thing its proper time. She stopped in front of Maya and looked at her for a moment without speaking, which for Rachel was significant.
 
@@ -132,7 +132,7 @@ She also saw, from across the room, someone she recognized.
 
 A woman she had known at undergraduate — they had been in the same seminar for two years, had shared notes, had gone for drinks twice at the end of term. She had come in at eight-thirty with a man Maya didn't know, and for the first twenty minutes had moved through the room the way anyone moved through it: slowly, looking. Then she had reached the east wall. She had stood in front of the body photograph for a long time.
 
-Maya had been watching from a distance — not deliberately, she had just been in the line of sight — and she had seen the woman's face change. Not disgust, not cruelty. Something more private and more complicated. Confusion, maybe. Or the particular expression of someone who has encountered something they did not have a category for and could not immediately find one.
+Maya had been watching from a distance — not deliberately, she had just been in the line of sight — and she had seen the woman's face change. Not disgust, not cruelty. Something more private and more complicated. Confusion, maybe. Or the expression of someone who had encountered something they had no category for and could not immediately find one.
 
 The woman had not found Maya before she left. She put on her coat and touched the man's arm and they went through the door at quarter to nine without saying goodbye, without leaving a note with Celia, without finding the artist whose name was on the wall.
 
@@ -166,7 +166,7 @@ He put his notebook in his jacket pocket.
 
 He walked to the door.
 
-She watched him go. The door swung shut. The room continued — voices, the low sound of people moved by work they had not expected to be moved by, the particular warmth of a space where something true had been put on the walls and the world had not ended.
+She watched him go. The door swung shut. The room continued — voices, the low sound of people moved by work they had not expected to be moved by, the warmth of a room where something true had been put on the walls and the world had not ended.
 
 ---
 
@@ -182,7 +182,7 @@ Ethan came to stand beside her.
 
 "No."
 
-She stood in the empty room with the work lights up and the photographs on the walls and felt the particular quality of something that had been held tightly for a very long time finally released — not dramatically, not with the force she might have expected, just quietly, the way a hand opens when it's ready.
+She stood in the empty room with the work lights up and the photographs on the walls and felt something that had been held tightly for a very long time finally release — not dramatically, not with the force she might have expected, just quietly, the way a hand opens when it's ready.
 
 Three years. Bret's kitchen, the stairwell, the forty-five-minute walk. Two years of his voice in her head every time she considered being visible, every time she thought about telling someone, every time she stood at a door she wasn't sure she could open. The thesis written in code. The gallery talks where she said the true thing in the frame of the academic because that was the only way she could carry it. The folder named *maybe*.
 

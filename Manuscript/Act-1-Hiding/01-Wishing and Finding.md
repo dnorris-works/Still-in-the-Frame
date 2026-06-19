@@ -18,7 +18,7 @@ The Hartley retrospective — six weeks of installation work, opening in nine da
 
 The City Museum of Contemporary Art was different after hours.
 
-During the day it ran on murmured commentary and guided shuffling and the particular reverence of visitors who weren't sure how close they were allowed to stand. At night, with the public gone and only the emergency lighting running its low amber through the galleries, the works felt different. More present. Less observed. Like people at a party who have finally stopped performing now that most of the guests have left.
+During the day it ran on murmured commentary and guided shuffling and the hushed reverence of visitors who weren't sure how close they were allowed to stand. At night, with the public gone and only the emergency lighting running its low amber through the galleries, the works felt different. More present. Less observed. Like people at a party who have finally stopped performing now that most of the guests have left.
 
 Ethan had always liked that about them.
 
@@ -30,7 +30,7 @@ He stopped.
 
 The museum was supposed to be empty. Security swept at seven. The last gallery staff left at six-thirty. He checked his watch: eight forty-five.
 
-He stayed on the ladder and listened. No alarm. No urgency. Just the quiet sound of someone moving slowly through a room — the particular unhurried pace of a person looking at something.
+He stayed on the ladder and listened. No alarm. No urgency. Just the quiet sound of someone moving slowly through a room — the unhurried pace of a person looking at something.
 
 He finished the track light and the one after it, checked the effect from the center of the gallery, adjusted the angle two degrees, and checked it again. Twenty minutes, start to finish. When he climbed down for the last time and crossed to the archway between Gallery Seven and Six, she was still there.
 
@@ -160,7 +160,7 @@ She kept walking.
 
 She passed Riverside Community Church on Clement Street.
 
-Through the tall windows the lights were still on — a meeting of some kind, figures moving inside, the warm amber of the interior, someone setting out chairs. She could hear faint voices, overlapping, the particular sound of a room where people felt at ease. She didn't slow her pace. She didn't stop.
+Through the tall windows the lights were still on — a meeting of some kind, figures moving inside, the warm amber of the interior, someone setting out chairs. She could hear faint voices, overlapping, the sound of a room where people felt at ease. She didn't slow her pace. She didn't stop.
 
 But she looked.
 

@@ -2,7 +2,7 @@
 
 The pub was Jake's idea, which meant it was louder than necessary and had an excellent jukebox.
 
-It was two days after. Two days since Ethan's house, his couch, his arms around her while the world declined to end. She had woken this morning with the particular feeling of someone who has survived something they had not expected to survive — not trauma, but joy. The complete acceptance of being known.
+It was two days after. Two days since Ethan's house, his couch, his arms around her while the world declined to end. She had woken this morning with the feeling of someone who has survived something they had not expected to survive — not trauma, but joy. The complete acceptance of being known.
 
 Zoe knew everything. She'd told her about the night, about Ethan's response, about waking up in his bed and making breakfast together. Zoe had cried and delivered her verdict — "About time," in terms that required no further elaboration — and that had been that. But Zoe knowing was one thing. This table was another.
 

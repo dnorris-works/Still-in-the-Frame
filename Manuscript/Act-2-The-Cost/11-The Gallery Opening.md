@@ -18,7 +18,7 @@ The Hidden Gallery's director, a compact woman named Celia who wore the same gra
 
 Celia nodded once and moved away. Maya stood in the middle of the room and let the space settle around her. Thirty-seven pieces. Four months. Every choice she'd made in this room had been, she now understood, also a choice about herself — what she could bear to look at, what she found courage in, what she needed to believe was possible.
 
-Ethan was somewhere near the back with his camera. She could feel him without looking — the particular quality of his presence in a room, the way he moved around an edge rather than through a center. She had given him full access for the night: document what you see. He had nodded and said nothing else, which was exactly right.
+Ethan was somewhere near the back with his camera. She could feel him without looking — the way he moved around an edge rather than through a center, always the edge. She had given him full access for the night: document what you see. He had nodded and said nothing else, which was right.
 
 ---
 

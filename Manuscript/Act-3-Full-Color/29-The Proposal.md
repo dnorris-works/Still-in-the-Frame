@@ -4,7 +4,7 @@ It was his idea, but she said yes before he'd finished suggesting it.
 
 He had texted on a Thursday evening — *the trail on Saturday?* — and she had replied before he'd put the phone down. She hadn't been back since the first time, nearly two years ago. She had thought about going back, in the abstract way you thought about places where significant things had happened to you, but the thinking had stayed abstract. Now it didn't.
 
-She met him at the trailhead at eight. He had the same pack. The same worn boots. He looked up when he heard her on the gravel and the particular quality of his expression when he saw her — the one he didn't perform, the one that arrived before he could decide what to do with it — had never stopped making her feel the way it made her feel, which was seen, which was still the truest word for it.
+She met him at the trailhead at eight. He had the same pack. The same worn boots. He looked up when he heard her on the gravel and the expression on his face when he saw her — the one he didn't perform, the one that arrived before he could decide what to do with it — had never stopped making her feel the way it made her feel, which was seen, which was still the truest word for it.
 
 "Morning," he said.
 
@@ -20,7 +20,7 @@ The trail was the same and entirely different in the way of places revisited —
 
 She did not think about where they were going. She just climbed.
 
-He was behind her through the narrow section and beside her when the trail widened, and she was aware of him the way she had been aware of him since the first night — the particular quality of his presence, the way he occupied space without demanding anything from it. He had not changed. Or he had changed, specifically, in the ways that mattered, in the ways that came from having chosen something and lived in the choosing of it. But the quality she had noticed in Gallery Six — the way he stood still in a room and actually looked — that had not changed. She thought it was the truest thing about him.
+He was behind her through the narrow section and beside her when the trail widened, and she was aware of him the way she had been aware of him since the first night — the way he occupied space without demanding anything from it. He had not changed. Or he had changed, specifically, in the ways that mattered, in the ways that came from having chosen something and lived in the choosing of it. But the quality she had noticed in Gallery Six — the way he stood still in a room and actually looked — that had not changed. She thought it was the truest thing about him.
 
 They stopped twice. Once at the rock shelf where she had sat and waited for the light on the first climb, and she stood at the edge and looked out over the valley below and he stood beside her and they didn't say anything because there was nothing to say that the view hadn't already said. Once at the water point halfway up, where a family was coming down — two children, a father in a yellow jacket — and they stepped aside to let them pass and the younger child, about four, stared at Ethan with the frank assessment of someone who had not yet learned not to, and Ethan looked back with equal gravity until the child grinned and looked away, and Maya filed it, as she filed most things about him, somewhere she could find it again.
 
@@ -28,13 +28,13 @@ They stopped twice. Once at the rock shelf where she had sat and waited for the 
 
 The overlook was the same.
 
-The flat rock, the long view, the city spread below in the particular haze of a clear Saturday morning. The hawk — or a hawk, she thought, the same hawk was statistically unlikely but she chose to believe it — turning a slow circle below the ridge line. The bench of stone on the far side where she had sat and said *I've never felt truly seen* to a man she had known for eleven weeks and understood that she was telling the truth.
+The flat rock, the long view, the city spread below in the morning haze. The hawk — or a hawk, she thought, the same hawk was statistically unlikely but she chose to believe it — turning a slow circle below the ridge line. The bench of stone on the far side where she had sat and said *I've never felt truly seen* to a man she had known for eleven weeks and understood that she was telling the truth.
 
 She stood at the edge and looked out.
 
 He came to stand beside her.
 
-They were both breathing harder from the final section. She could feel the particular burn in her thighs that meant they'd climbed fast, and the clean cold air at altitude was doing what it did — making everything slightly more itself, slightly more present, the light sharper, the distances more accurate than they seemed from below.
+They were both breathing harder from the final section. She could feel the burn in her thighs that meant they'd climbed fast, and the clean cold air at altitude was doing what it did — making everything slightly more itself, slightly more present, the light sharper, the distances more accurate than they seemed from below.
 
 "Same hawk," she said.
 
@@ -50,7 +50,7 @@ She thought about the first time. The managed version of herself, still so fully
 
 "I'm glad we came back," she said.
 
-He turned to look at her then. And something in the way he looked — the particular quality of the attention, the way he was looking at her like she was the thing he had come to see, like the city and the hawk and the ridge were all beside the point — made her go still.
+He turned to look at her then. And something in the way he looked — the way he was looking at her like she was the thing he had come to see, like the city and the hawk and the ridge were all beside the point — made her go still.
 
 "Maya," he said.
 
@@ -58,7 +58,7 @@ He said it the way he had said it at the overlook the first time. Like he meant 
 
 He reached into his jacket pocket.
 
-She understood before he moved, before she saw the ring, before he had done anything except say her name and put his hand in his pocket — she understood, with the particular certainty of someone who has been paying attention, what was happening.
+She understood before he moved, before she saw the ring, before he had done anything except say her name and put his hand in his pocket — she understood, with the certainty of someone who has been paying attention, what was happening.
 
 He went to one knee on the flat rock.
 

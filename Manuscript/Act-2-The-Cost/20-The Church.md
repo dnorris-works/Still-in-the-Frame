@@ -2,7 +2,7 @@
 
 She had told him on a Thursday evening, without planning to.
 
-They were at his kitchen table and he was talking about his mother — not often, and not at length, but occasionally, in the way of someone who has made peace with a grief and can now carry it lightly. He had said: *She liked Sunday mornings. Not performatively. She just thought they deserved something.* And Maya had said, without thinking: *I stood outside Riverside Community Church in November and put my hand on the door.* And he had gone quiet in the particular way that meant he was listening with more than his ears.
+They were at his kitchen table and he was talking about his mother — not often, and not at length, but occasionally, in the way of someone who has made peace with a grief and can now carry it lightly. He had said: *She liked Sunday mornings. Not performatively. She just thought they deserved something.* And Maya had said, without thinking: *I stood outside Riverside Community Church in November and put my hand on the door.* And he had gone quiet in the way that meant he was listening with more than his ears.
 
 She hadn't told anyone that. Not Zoe, not anyone.
 
@@ -20,7 +20,7 @@ They arrived ten minutes before the service. The wooden noticeboard had a differ
 
 Maya stood on the pavement outside and breathed.
 
-The last time she had been inside a church she was seventeen — her grandmother's funeral, third pew from the left, the smell of flowers and old stone, the particular quality of grief in a room that knew how to hold it. Before that, the Sunday morning at sixteen when she had felt, briefly, the thing her grandmother always seemed to feel. Something solid. Something that didn't need to be argued.
+The last time she had been inside a church she was seventeen — her grandmother's funeral, third pew from the left, the smell of flowers and old stone, grief filling the room the way it does in spaces built to hold it. Before that, the Sunday morning at sixteen when she had felt, briefly, the thing her grandmother always seemed to feel. Something solid. Something that didn't need to be argued.
 
 She had left after that and not come back.
 
@@ -30,7 +30,7 @@ She walked to the door and opened it.
 
 ---
 
-The inside was smaller than she'd imagined from the windows. Stone walls, plain wooden pews, morning light coming through clear glass rather than stained — the particular light of a room that has been loved for a long time by people who believed it deserved care. It smelled of old wood and something she couldn't name that she realized after a moment was simply the smell of a room that had been in continuous use, generation after generation, for purposes larger than the furniture.
+The inside was smaller than she'd imagined from the windows. Stone walls, plain wooden pews, morning light coming through clear glass rather than stained — the light of a room that has been loved for a long time by people who believed it deserved care. It smelled of old wood and something she couldn't name that she realized after a moment was simply the smell of a room that had been in continuous use, generation after generation, for purposes larger than the furniture.
 
 They slid into a pew near the back. The congregation was modest — sixty, perhaps seventy people. Families, couples, people alone. An elderly man two rows ahead who appeared to be asleep. A young woman in the row across the aisle with a sleeping infant against her chest. Nothing remarkable. Just — people who had come on a Sunday morning because they thought it mattered.
 
@@ -60,7 +60,7 @@ She did not look at him. She looked at her hands, then at the clear glass window
 
 After the service she stood in the small foyer with Ethan while the congregation moved around them, talking, unhurried, ordinary Sunday-morning conversation. She wasn't ready to leave and she wasn't ready to speak and he seemed to understand both.
 
-A woman appeared at her elbow. Not intrusively — just suddenly there, in the particular way of people who have learned to move quietly in rooms where things matter.
+A woman appeared at her elbow. Not intrusively — just suddenly there, in the way of people who have learned to move quietly in rooms where things matter.
 
 She was in her sixties, solidly built, wearing a clerical collar under a cardigan in a shade of green that had clearly been chosen because she liked it rather than because it was appropriate. She had the face of someone who had listened to a great many difficult things and had not been diminished by any of them.
 
@@ -68,7 +68,7 @@ She was in her sixties, solidly built, wearing a clerical collar under a cardiga
 
 Maya shook her hand. "Maya Vasquez."
 
-"I know the name. Douglas Reid passed your Voss paper around the theology faculty last autumn — said it was doing theology without knowing it." She looked at Maya with the particular unhurried attention of someone who was genuinely interested rather than professionally attentive. "He was right, I think."
+"I know the name. Douglas Reid passed your Voss paper around the theology faculty last autumn — said it was doing theology without knowing it." She looked at Maya with the unhurried attention of someone who was genuinely interested rather than professionally attentive. "He was right, I think."
 
 Maya looked at her.
 
@@ -94,9 +94,9 @@ She didn't say any of this aloud. She stood on the pavement and held it quietly,
 
 She looked at him. "Yes."
 
-He nodded. He didn't ask what she was thinking, which was exactly right.
+He nodded. He didn't ask what she was thinking, which was right.
 
-They walked. The city was Sunday-quiet around them, the particular hush of a morning that has made room for something other than business.
+They walked. The city was Sunday-quiet around them, the hush of a morning that had made room for something other than business.
 
 She thought: *I want to come back.*
 

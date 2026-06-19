@@ -24,7 +24,7 @@ She turned and looked at him. He looked back.
 
 ---
 
-The darkroom was a converted bathroom — his mother's work, done before he was old enough to understand what she was building. The window blacked out, the ventilation modified, the old sink repurposed. It smelled of fixer and developer, that particular chemical darkness Maya knew only from archives and old print collections. He moved around it with the ease of long habit, checking temperatures, explaining the process with his hands more than his words.
+The darkroom was a converted bathroom — his mother's work, done before he was old enough to understand what she was building. The window blacked out, the ventilation modified, the old sink repurposed. It smelled of fixer and developer, that chemical darkness Maya knew only from archives and old print collections. He moved around it with the ease of long habit, checking temperatures, explaining the process with his hands more than his words.
 
 "Here." He held a pair of tongs out to her. "Hold this."
 

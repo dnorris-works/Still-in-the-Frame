@@ -162,7 +162,7 @@ Maya was quiet for a moment. The trail turned, opened briefly onto a long view o
 
 He didn't push on it. He heard it and let it sit, the way he did.
 
-They walked in silence for a while. The trail wound through a stand of birch, the light filtering through in the particular way of late morning, and she turned something over in her mind that she had been carrying for weeks.
+They walked in silence for a while. The trail wound through a stand of birch, the light filtering through in the loose, sideways way of late morning, and she turned something over in her mind that she had been carrying for weeks.
 
 "Can I ask you something personal?"
 

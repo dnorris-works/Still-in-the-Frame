@@ -4,7 +4,7 @@ He went in on Monday morning, before she was up.
 
 Not to avoid her — she was still asleep, and he had stood in the bedroom doorway for a moment looking at the shape of her in the early light, her hair across the pillow, the slow rise and fall of her breathing, and had thought: *not yet. Let her sleep.* Then he had made coffee, taken the developing tanks from the shelf, and gone into the darkroom and closed the door.
 
-The room had its particular smell — fixer and developer, the chemical dark he had been living in since he was nineteen. The darkroom had been his mother's before it was his. She had converted the back bathroom herself, blacked out the window, modified the ventilation, repurposed the old sink. Her enlarger was still on the shelf above his own. He had never moved it. She had given him his first one, a smaller model, and said: show me something true. He had the radio on low, the red lamp casting its particular quality of light over everything, and he worked through the first roll without thinking about much. The motions were long habit — agitate, wait, pour, rinse — the kind of work the hands could do while the rest of the mind was elsewhere.
+The room had its own smell — fixer and developer, the chemical dark he had been living in since he was nineteen. The darkroom had been his mother's before it was his. She had converted the back bathroom herself, blacked out the window, modified the ventilation, repurposed the old sink. Her enlarger was still on the shelf above his own. He had never moved it. She had given him his first one, a smaller model, and said: show me something true. He had the radio on low, the red lamp casting its amber over everything, and he worked through the first roll without thinking about much. The motions were long habit — agitate, wait, pour, rinse — the kind of work the hands could do while the rest of the mind was elsewhere.
 
 The second roll was from the opening.
 
@@ -12,7 +12,7 @@ He worked slowly with those. The negs were dense — he'd shot a lot, more than 
 
 Maya in the center of it.
 
-He clipped the strip to the wire and examined it with the loupe. Frame after frame of her — not posing, never posing, she had stopped doing that around month three and he had never asked her to resume — just her, in the room, being fully in it. He had one of her with Bowen where both of them were laughing at something and her head was slightly back and her hands were in the air and you could see from twenty feet away that she knew exactly what she was talking about and was not afraid of anyone in the room knowing it. He had one of her with the woman who had stopped her near the east wall, the stranger, the one who had said *I didn't know this was possible* — and in it Maya's face was the particular face she made when something arrived that she hadn't prepared a response for. Not undone. Present. Taking it in without managing it.
+He clipped the strip to the wire and examined it with the loupe. Frame after frame of her — not posing, never posing, she had stopped doing that around month three and he had never asked her to resume — just her, in the room, being fully in it. He had one of her with Bowen where both of them were laughing at something and her head was slightly back and her hands were in the air and you could see from twenty feet away that she knew exactly what she was talking about and was not afraid of anyone in the room knowing it. He had one of her with the woman who had stopped her near the east wall, the stranger, the one who had said *I didn't know this was possible* — and in it Maya's face was the face she made when something arrived that she hadn't prepared a response for. Not undone. Present. Taking it in without managing it.
 
 He had the one from eight o'clock.
 
@@ -28,7 +28,7 @@ His mother had been a photographer too — not professionally, not with any form
 
 He had found her contact sheets after she died. Three hundred and forty-seven rolls, logged by hand in a narrow notebook — dates, locations, what she had been trying to see. He had sat with them in the kitchen for an afternoon and understood several things at once, the most important of which was that he had learned everything from her, had simply not known it until she was gone.
 
-He thought about her when he was in the darkroom. Not always — not deliberately — but she arrived in those hours the way she arrived in church on the Sundays he still went: quietly, without announcement, present in the smell of chemicals and the red light and the particular silence of a room in which something was still becoming visible.
+He thought about her when he was in the darkroom. Not always — not deliberately — but she arrived in those hours the way she arrived in church on the Sundays he still went: quietly, without announcement, present in the smell of chemicals and the red light and the silence of a room where something was still becoming visible.
 
 He thought: she would have liked Maya. Not for the reasons people usually meant when they said that about someone — the polite, surface reasons. She would have liked Maya because Maya thought in images too, because she walked through a room the way she walked through an argument, looking for what was actually there rather than what was supposed to be there. Because she had a particular kind of honesty that was not bluntness but precision — she said what she meant and meant it exactly, and his mother had no patience for any other kind.
 
@@ -58,11 +58,11 @@ He pulled the drawer open and took it out. Sat with it in his palm in the red li
 
 He had not stood in front of a mirror and made speeches. He had not drafted the moment.
 
-He sat in the darkroom and held the ring in his palm and thought about the trail. The overlook where she had kissed him first — decisive, not tentative, her hand at his jaw — and the city spread below and the light the particular gold of late afternoon in early autumn. He thought about going back to that place. He thought about what it would mean to her, specifically — not the gesture in the abstract but the specific weight of that specific place for this specific person who had stood at the overlook and said she had never felt truly seen, and who now, he thought, had revised that.
+He sat in the darkroom and held the ring in his palm and thought about the trail. The overlook where she had kissed him first — decisive, not tentative, her hand at his jaw — and the city spread below and the light gold in the late afternoon in early autumn. He thought about going back to that place. He thought about what it would mean to her, specifically — not the gesture in the abstract but the specific weight of that specific place for this specific person who had stood at the overlook and said she had never felt truly seen, and who now, he thought, had revised that.
 
 He thought about her face when he showed her the photograph from the opening. The woman looking at herself without flinching.
 
-He thought about three weeks after the reveal, in the hospital corridor, when Maya had sat quietly with a consultant's notes in her hands and walked him through what the tests confirmed, and he had listened carefully and asked one question and then held her hand in the particular silence that meant: I received that, I am still here, nothing about what you just told me has moved me from where I am standing. He had not thought of it as courage at the time. He had thought of it as the obvious thing. He understood now that obvious things had cost her, specifically, everything, and that the understanding was one he had been given as a gift he had not earned.
+He thought about three weeks after the reveal, in the hospital corridor, when Maya had sat quietly with a consultant's notes in her hands and walked him through what the tests confirmed, and he had listened carefully and asked one question and then held her hand in a silence that meant: I received that, I am still here, nothing about what you just told me has moved me from where I am standing. He had not thought of it as courage at the time. He had thought of it as the obvious thing. He understood now that obvious things had cost her, specifically, everything, and that the understanding was one he had been given as a gift he had not earned.
 
 He closed his hand around the ring.
 
@@ -86,7 +86,7 @@ Just her. Completely.
 
 He looked at it for a long time.
 
-Then he clipped it to the wire to finish drying and turned off the enlarger and sat in the red dark and thought about Sunday, and the church, and the particular quality of her face when she had said *I want to go back. Not because I have to. Because I want to.*
+Then he clipped it to the wire to finish drying and turned off the enlarger and sat in the red dark and thought about Sunday, and the church, and her face when she had said *I want to go back. Not because I have to. Because I want to.*
 
 He had been watching her get there for a year and a half.
 

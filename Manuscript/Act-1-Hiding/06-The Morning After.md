@@ -2,7 +2,7 @@
 
 He woke to the smell of coffee and the quiet sounds of someone moving around downstairs.
 
-He lay still for a moment — orienting himself to the morning light through the curtains, the particular quality of quiet that meant Maya was still here, still in his house. The city was doing its early thing outside. A pigeon. A delivery truck. The distant run of traffic.
+He lay still for a moment — orienting himself to the morning light through the curtains, a quality of quiet that meant Maya was still here, still in his house. The city was doing its early thing outside. A pigeon. A delivery truck. The distant run of traffic.
 
 Her side of the bed was empty but recently left, the pillow still holding the shape of her, the warmth not entirely gone.
 
@@ -18,7 +18,7 @@ She glanced over her shoulder and saw him. She didn't say anything immediately. 
 
 He sat.
 
-She brought the pan over and served him without ceremony, then sat across from him with her own plate. The morning light came through the window at the angle that made the kitchen look like itself — nothing staged, nothing performed. Just his kitchen, and her in it, and the particular ordinary of someone who had decided to be here.
+She brought the pan over and served him without ceremony, then sat across from him with her own plate. The morning light came through the window at the angle that made the kitchen look like itself — nothing staged, nothing performed. Just his kitchen, and her in it, and the plain ordinariness of someone who had decided to be here.
 
 He poured her coffee. She wrapped both hands around the cup.
 
@@ -116,7 +116,7 @@ She looked up.
 
 "You deserved that." Zoe's voice was fierce and certain, the voice she used when she had decided something. "You deserved exactly that. Not someday. Not eventually. Not when you'd earned it or when the situation was right or when you'd found some way to make it easier for whoever was on the receiving end." She shook her head. "You deserved it and you got it and I have been waiting for that for three years and I am not going to stop crying about it for at least a week, so."
 
-Maya laughed — the real laugh, the one that surprised her. Zoe laughed too, wetly, and refilled both glasses, and they sat on the kitchen floor until the wine was gone and the afternoon had gone gray outside and Maya felt, fully and without managing it, the particular lightness of a thing set down after years of carrying.
+Maya laughed — the real laugh, the one that surprised her. Zoe laughed too, wetly, and refilled both glasses, and they sat on the kitchen floor until the wine was gone and the afternoon had gone gray outside and Maya felt, fully and without managing it, the lightness of a thing set down after years of carrying.
 
 ---
 
