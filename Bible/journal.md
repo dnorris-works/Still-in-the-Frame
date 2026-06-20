@@ -187,7 +187,7 @@ The scene honours the register of the manuscript (no confrontation, no speech, n
 
 1. **Part 1 developmental edits** — all items from Session 4 dev pass (Chs. 1, 2, 3, 5, 6, 7, 8, 9). To be done next session.
 2. **Outline correction (Chs. 21–24)** — `outline-master.md` entries misaligned from Session 3 reorder. Author review item.
-3. **Drama pass — Recommendation 2:** Expand Ch. 14 (The Faith Crisis) door scene — give Maya's body at the door, the chaplain's voice arriving, the specific fear. Currently ~300 words; needs a full scene.
+3. **Drama pass — Recommendation 2:** Expand Ch. 14 (The Faith Crisis) door scene — give Maya's body at the door, the chaplain's voice arriving, the specific fear. Currently ~300 words; needs a full scene. ✅ DONE — Session 9
 4. **Drama pass — Recommendation 3:** Add one brief Bret presence between Ch. 17 and the exhibition — a sentence or paragraph keeping him present as a live threat in the reader's mind.
 5. **Drama pass — Recommendation 4:** Add a moment of friction to the proposal scene (Ch. 29) — the flash of *is this actually available to me* before Maya says yes.
 6. **Drama pass — Recommendation 5:** Slow down the Eileen moment in Ch. 30 — Ethan's hand on Maya's arm, Eileen watching it, the grief and relief arriving. The pivot is there; the prose moves through it too quickly.

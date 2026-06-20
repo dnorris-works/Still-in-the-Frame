@@ -52,6 +52,26 @@ The metal was cold. Through the door she could feel the faint warmth of the room
 
 She stood there for a full minute. Maybe longer.
 
+The chaplain's voice arrived. It always did, in places like this.
+
+He had been kind. That was the thing she could never fully set aside and the thing that made it worse — not cruelty she could dismiss, but care she couldn't. He had listened. He had made tea. He had opened his Bible with the same quiet authority she imagined he brought to everything, and he had read, and when he finished reading he had looked at her over the desk and spoken gently about cross-bearing and vocation and the gift of a life that looked different from the ordinary one. His voice had never hardened. His face had never changed. He had been, throughout, the kindest version of the answer.
+
+And the answer had still been no.
+
+She thought about the people on the other side of this door. She could not see their faces from here — only shapes through glass, movement, the warm blur of a gathered room. They did not know she was standing outside. The service was going on without her, as services did, as everything did, as her whole life had been going on without a room like this in it since she was sixteen. They were inside and she was outside and the door between them was exactly as heavy as it had always been.
+
+Not because of what they would do if she walked in. She didn't know what they would do. That was the thing — she didn't know, and not knowing was its own particular weight. It was possible they would be exactly what they appeared to be through the glass: warm, gathered, making room. It was possible that the man she had read three times in a bookmarks folder called *maybe* was right, and that this was one of the rooms where right looked different from what she'd been told. She didn't know. She had spent years not knowing and building a life that didn't require knowing, and standing here with her hand on the cold iron she could feel the cost of all that not-knowing pressing against the inside of her chest.
+
+Bret's kitchen. The wooden chair. The brick wall outside the window. *You're not a real woman.* The controlled voice that had delivered it like a verdict rather than a wound, as if he were simply reading out what the facts had always been.
+
+If she walked in and it was good. If it was genuinely good — warm and real, the way her grandmother's faith had been warm and real, the kind that didn't argue because it didn't need to. If she walked in and they looked at her and they knew and it was still good —
+
+She could not survive being wrong about that. She had been wrong twice. She had built the architecture of her life around not being wrong a third time.
+
+The singing rose slightly on the other side of the door. A swell, then a settling. She felt it through the iron handle — the faint vibration of it, voices in a room, people who had decided.
+
+She stood there for a full minute. Maybe longer.
+
 She let go of the handle, stepped back, and walked away.
 
 ---
