@@ -74,6 +74,70 @@ Jessica wrote that down without asking her to elaborate.
 
 ---
 
+She saw him at nine-seventeen.
+
+She knew the time because she had just checked it — the same old opening-night habit, tracking the arc of the evening. The room was at its peak, maybe forty minutes from thinning. She had been feeling something close to calm for the previous hour and had been careful not to examine it too closely in case examining it was what ended it.
+
+Then Bret Reynolds came through the door with his press lanyard and his notebook and his coat still on, and the calm went somewhere it had been before.
+
+Her body registered him before her mind caught up — the same cold drop through the chest she had felt in the second room of *Drawn Inward*, eight months ago. The reflex she had spent three years trying to unlearn. She had known, in the abstract, that he would come. She had known since March 1st appeared in her calendar as the opening date. He covered shows like this. He had every right to be here.
+
+He stopped inside the door and looked at the room.
+
+Not at her — at the photographs. The first one immediately: Maya alone in the November light of the library reading room, bent over her notebook, unaware of the camera. He looked at it with the professional assessment she knew from three years of watching him work — the slight narrowing, the mental note. Then he moved to the second photograph. Then the third.
+
+He stood in front of the third photograph for longer than the others.
+
+Maya was aware of Ethan materializing at her left side. Not touching her. Just there — the way he was always there, in the same room, findable.
+
+Bret turned from the photographs and moved through the crowd. He spoke briefly to someone Maya didn't recognize — another press credential, a woman with a small recording device. He accepted a glass of wine from a passing tray. He moved through the room with the ease of a man who belonged anywhere the work was being shown.
+
+She watched him understanding what had happened.
+
+She could see it happening in real time. The people around the third photograph — the couple who had been standing there for twenty minutes, the woman who had said *so honest* — didn't shift when he arrived. There was no gap for him to fill with his particular knowledge. The room already knew. The information he had been carrying for three years, the lever he had positioned himself to use, had been taken out of the mechanism before he arrived. The gallery had done it. The photographs had done it. She had done it by standing in a museum director's office in October and saying the plain words without framing them as confession.
+
+He had come to the exhibition intending to write something. She understood that the moment she saw the notebook.
+
+She watched him understand there was nothing to write that she hadn't already written in larger letters on a white wall.
+
+He turned. Their eyes met across the room.
+
+She had rehearsed this moment, in the abstract — had imagined herself collected and still, had planned the posture, the expression, the exact quality of not looking away. None of the rehearsal arrived. She was simply standing in her own exhibition with her hands at her sides and her face whatever it was, and she was looking at him, and the room was full of people who already knew what he knew.
+
+He looked back at her for a long moment. She couldn't read his expression from this distance — whether it was anger or something more complicated, something that had to do with having carried a weapon for three years and arriving to find it already disarmed. He didn't move toward her. He didn't look away.
+
+Then he put his notebook in his jacket pocket, without having written anything, and looked once more at the third photograph on the wall — the one that hid nothing, the one he could have used, the one she had put there herself — and walked to the door.
+
+He did not look back.
+
+Maya stood very still and watched the door swing shut behind him.
+
+Ethan's hand found her arm. He didn't say anything.
+
+She breathed.
+
+"I need a minute," she said.
+
+He nodded and let her go.
+
+She walked to the far wall — the east wall, where the third photograph hung — and stood in front of it alone. The couple had moved on. The room gave her the space without being asked; she had been in enough galleries to know the way people read privacy in a posture.
+
+She looked at the photograph.
+
+Ethan had taken it the morning after the gallery confrontation with Bret — she hadn't known that was what it was at the time, had thought he was photographing the light. She was turned three-quarters toward the window in his apartment, her arms loose at her sides, and the light was doing what October light did: making everything more specific, more itself. There was nothing managed in her posture. There was no angle. She was simply in the room, visible, and he had taken the photograph because she was worth seeing.
+
+Bret had looked at this. Had stood in front of it for longer than the others. Had understood what it meant — had understood that the person in the photograph was finished being afraid of him.
+
+She pressed her fingers briefly against the wall beneath the frame. Not a dramatic gesture. Just — contact. The solid fact of the wall that had held the image, that was still holding it, that would hold it for the rest of the evening regardless of whether he was in the room.
+
+She stepped back.
+
+"Okay," she said quietly, to herself.
+
+She turned and walked back into the room.
+
+---
+
 Partway through the evening, she saw an undergraduate she recognized from a seminar she'd taught in the autumn — a young man who had written a careful, honest paper about bodies and representation and the limits of what art could carry. He was standing in front of the third photograph alone, his hands in his pockets.
 
 He stood there for a long time.

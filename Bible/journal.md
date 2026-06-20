@@ -166,10 +166,31 @@ The actual problem was inside the door paragraph: the fear was named, then immed
 
 ---
 
-## What Still Needs Doing
+## Session 9
+
+**Task:** Drama pass — Recommendation 1: Expand the Bret exhibition scene in Ch. 24
+**Files changed:** `24-The Display.md`
+
+**What changed and why:**
+
+Bret was absent from Ch. 24 entirely. His threat was established in Ch. 16, managed in Ch. 17, and the exhibition that was meant to disarm it opened without him present on the page — meaning the resolution of the story's central external conflict was never dramatised. Added a full scene section between the Jessica Chen interview and the undergraduate moment.
+
+The new section runs ~750 words. Maya sees him arrive at nine-seventeen — the same time-checking habit that opened Ch. 16. Her body registers him before her mind catches up. Ethan materialises at her left side without touching her. Bret moves through the room with his press credential and notebook, looks at the photographs in sequence, stands longest at the third. He understands what has happened — that the room already knows, that the information he has been carrying has been removed from the mechanism. He meets Maya's eyes across the room. He puts his notebook away without writing anything and leaves.
+
+Maya then goes to the east wall alone and stands in front of the third photograph. The moment is interior — she looks at the image, registers that Bret saw it, understands that he understood what it meant. She presses her fingers briefly to the wall. Says "Okay" to herself. Returns to the room.
+
+The scene honours the register of the manuscript (no confrontation, no speech, no triumph performed) while giving the reader the dramatised payoff the Bret arc had earned. His weapon is visibly disarmed rather than reported as disarmed.
+
+**Also corrected:** An editorial artifact ("Ch. 17") that appeared in the prose was replaced with a proper story reference ("the morning after the gallery confrontation with Bret").
+
+**What Still Needs Doing**
 
 1. **Part 1 developmental edits** — all items from Session 4 dev pass (Chs. 1, 2, 3, 5, 6, 7, 8, 9). To be done next session.
 2. **Outline correction (Chs. 21–24)** — `outline-master.md` entries misaligned from Session 3 reorder. Author review item.
+3. **Drama pass — Recommendation 2:** Expand Ch. 14 (The Faith Crisis) door scene — give Maya's body at the door, the chaplain's voice arriving, the specific fear. Currently ~300 words; needs a full scene.
+4. **Drama pass — Recommendation 3:** Add one brief Bret presence between Ch. 17 and the exhibition — a sentence or paragraph keeping him present as a live threat in the reader's mind.
+5. **Drama pass — Recommendation 4:** Add a moment of friction to the proposal scene (Ch. 29) — the flash of *is this actually available to me* before Maya says yes.
+6. **Drama pass — Recommendation 5:** Slow down the Eileen moment in Ch. 30 — Ethan's hand on Maya's arm, Eileen watching it, the grief and relief arriving. The pivot is there; the prose moves through it too quickly.
 
 ---
 
