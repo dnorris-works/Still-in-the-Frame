@@ -16,11 +16,10 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | 4 | Hiking trail; holds her hand on the climb; photographs her on the ridge; asks permission to photograph her at the overlook; she kisses him first |
 | 5 | Invites Maya to his house; shows her the darkroom and portrait series; she finds the museum photograph; they become intimate; receives her disclosure; goes still; asks permission; chooses her |
 | 6 | Makes coffee before she wakes; the morning-after conversation; lends her a shirt; walks her to the door |
-| 7 | Tells Jake; spends the day in silence; drives to Maya's apartment; goes down on both knees on her kitchen floor; promises: no more silence |
-| 8 | Pub with Jake and Priya; signals approval of Maya; gets the thesis presentation time through Rachel; attends the presentation; waits at the back |
+| 7 | Pub with Jake and Priya; signals approval of Maya; gets the thesis presentation time through Rachel; attends the presentation; waits at the back |
+| 8 | Goes to Maya's apartment when she cancels; brings soup; reads to her; stays the day; three weeks later proposes the portrait series; photographs her at four locations |
 | 9 | Trusts Maya to meet Jake alone; receives her verdict by text |
-| 10 | Goes to Maya's apartment when she cancels; brings soup; reads to her; stays the day; three weeks later proposes the portrait series; photographs her at four locations |
-| 11 | Hosts brunch with Maya and Rachel; takes a call from Jake; Rachel reports what she sees in him |
+| 10 | Hosts brunch with Maya and Rachel; takes a call from Jake; Rachel reports what she sees in him |
 | 12 | Asks Maya about her history; listens to the full Bret account; hears she cannot get pregnant; says "okay"; offers a frame for God's role; she walks out; opens the door when she returns; makes tea |
 | 13 | Ordinary evenings; the kitchen table dinner; the deadline misunderstanding; he notes when Maya shuts a conversation down and names it gently; they repair it |
 | 14 | (Faith Crisis — Maya's chapter; Ethan not present) |
@@ -53,11 +52,11 @@ A record of what each character does, chapter by chapter. Updated as chapters ar
 | 4 | The hiking trail; talks about her grandmother's faith on the descent; asks if Ethan has been with a man; kisses him first at the overlook; says yes to being photographed |
 | 5 | Visits Ethan's house; sees the darkroom; finds the museum photograph; tells the managing voice to be quiet for the first time; faces him; is seen completely |
 | 6 | Wakes in his bed; the morning-after coffee; tells Zoe everything; lies awake holding the God thought for the first time in years |
-| 7 | Waits all day; reads the silence correctly; sends two texts; sits on the kitchen floor when he arrives; hears him out; takes his hand; forgives him |
-| 8 | Pub with Jake and Priya; the thesis presentation — realises during the Voss analysis she has been hiding from God the way her artists hid their pain |
-| 9 | Meets Jake alone; gives him the full account; accepts his apology without cheapening it |
-| 10 | Cancels a Wednesday; lets Ethan in and take care of her; three weeks later agrees to the portrait series; the four-location shoot; says "you make me feel beautiful" |
-| 11 | Meets Rachel at brunch; receives Rachel's separate coffee invitation; receives "I'm glad it's you. Properly glad"; files the detail about the church |
+| 7 | Pub with Jake and Priya; the thesis presentation — realises during the Voss analysis she has been hiding from God the way her artists hid their pain |
+| 8 | Cancels a Wednesday; lets Ethan in and take care of her; three weeks later agrees to the portrait series; the four-location shoot; says “you make me feel beautiful” |
+| 9 | Meets Rachel at brunch; receives Rachel’s separate coffee invitation; receives “I’m glad it’s you. Properly glad”; files the detail about the church |
+| 10 | Cancels a Wednesday; lets Ethan in and take care of her; three weeks later agrees to the portrait series; the four-location shoot; says “you make me feel beautiful” |
+| 11 | Hosts brunch (Ethan’s POV chapter — see Ethan Ch. 10) |
 | 12 | Tells Ethan the full Bret account on a Sunday; tells him she cannot get pregnant; walks out when he offers a theological frame; returns; they sit in the imperfect quiet |
 | 13 | A stretch of regular life — November; campus, museum, meals; ease settling; reads the theologian's paper and moves it to an unnamed folder |
 | 14 | Home alone after the opening; the flashback to Bret's kitchen; calls Ethan at midnight; stays on the phone; holds the thought at the end — AND faith crisis: walks past Riverside Community Church, puts her hand on the door, finds the Post-it in the drawer |

@@ -110,7 +110,7 @@ She looked at him standing there in his good jacket — this man who had held he
 
 "You were incredible," he said. "I've never seen you in front of a room before. You were completely at home up there."
 
-"That's who I am when I'm not afraid," she said. "That's who I want to be all the time."
+"That's who I am when I'm not afraid," she said.
 
 He looked at her for a long moment.
 

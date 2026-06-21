@@ -40,22 +40,6 @@ Ethan refilled the coffee.
 
 After the plates were cleared, Ethan went to take a call from Jake about the March open show, and Rachel and Maya stayed at the table with their second coffees and the ease of two people who've already passed the part of a first meeting where either of them could have decided not to bother.
 
-"He's different since he met you," Rachel said.
-
-Maya looked at her cup.
-
-"Not different in the way people get when they're performing happiness. Different in the way they get when something real has happened." She turned her mug in her hands. "He was okay before. Ethan is always okay. But okay was the best thing I could say about him for a while."
-
-"How long is a while?"
-
-"Since Mom." She said it simply, without weight, the way you say something you've carried long enough that it no longer needs to be handled carefully. "She died when he was nineteen. He was the one who found her. He was home for the weekend."
-
-Maya looked up.
-
-"He doesn't talk about it much," Rachel said. "But it changed the way he moves through things. Carefully. Like he knows things can end without warning and he doesn't want to break anything." She paused. "It's a good quality. It's also lonely."
-
-"I know," Maya said. And she did.
-
 Rachel texted her at three.
 
 *I'm at the place on Caldwell. Do you have an hour?*

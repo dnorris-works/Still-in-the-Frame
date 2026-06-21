@@ -72,6 +72,14 @@ She had not planned to do that. Her body did it before she could decide — that
 
 He was still looking at her. Waiting. Patient the way he had always been patient — not because he wasn't feeling anything but because he understood that she needed a moment, and he would give her as many moments as she needed, forever, that was the whole point of him.
 
+She stood on the rock and felt the old thought arrive. Not loudly — it had gotten quieter, over the months, the way he had said it might. But it came, one last time, in the space between his question and her answer: *this is not available to you. People like you don't get this. You are too complicated, too much of an explanation, too far outside the ordinary design.*
+
+She looked at him.
+
+He was still there. On one knee on the flat rock with the ring in his hand and his eyes wet and his whole face arranged into the expression of someone who had made up his mind a long time ago and was simply waiting for her to catch up.
+
+The thought went quiet.
+
 "Maya," he said again. Quietly. Just her name.
 
 "Yes," she said. Her voice came out rough. "Yes. Obviously yes."

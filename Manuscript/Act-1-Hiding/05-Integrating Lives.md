@@ -120,7 +120,7 @@ Her hands came up and pressed hard over her eyes. The tears came before she coul
 
 She pressed her hands harder against her face. Her whole body was angled away from him, toward the wall, toward anywhere that wasn't his expression.
 
-"Please don't reject me, Ethan." Her voice came out wrecked. "Not you. I can't bear it. I love you too much."
+"Please." Her voice came out wrecked.
 
 A pause. Then his hands — gentle, certain — closing around her wrists. Pulling her hands away from her face. Making her look at him.
 

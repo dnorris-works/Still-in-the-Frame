@@ -228,7 +228,7 @@ Maya dried a mug and said nothing.
 
 Zoe turned back to the sink. "Just be careful," she said. Quietly. Not as a warning — more like something she needed to say once, and once was enough. She reached over and squeezed Maya's hand, wet from the dishes, and let go.
 
-Maya stood there with the dish towel and the clean mug and the thing in her chest that had been building all week, and thought: *I know. I know. I'm trying.*
+Maya stood there with the dish towel and the clean mug.
 
 She put the mug away and went to her room and texted him goodnight.
 

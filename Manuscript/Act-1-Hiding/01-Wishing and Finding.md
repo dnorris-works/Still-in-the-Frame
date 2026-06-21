@@ -154,8 +154,6 @@ Maya walked home the long way without deciding to.
 
 The city was still warm, still moving. She passed the wine bar where a small crowd had spilled onto the pavement, the bookshop with its single lit window, the block where the Victorian terrace gave way to the newer buildings. She was thinking about the Diaz painting and what he'd said about standing at a different angle, and about the speed with which she had understood exactly what he meant — not only about the painting.
 
-*Stop*, said the part of her that managed things. *You met a man in a museum. That's all this is.*
-
 She kept walking.
 
 She passed Riverside Community Church on Clement Street.

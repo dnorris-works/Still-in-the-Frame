@@ -56,7 +56,7 @@ She looked at their hands on the table.
 
 "I love you," she said. The first time she'd said it. It came out more simply than she'd expected — no ceremony, just the true thing.
 
-"I know that too." He squeezed once. "I love you back."
+"I love you back." He squeezed once.
 
 He let go and picked up his coffee.
 

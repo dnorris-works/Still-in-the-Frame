@@ -183,14 +183,35 @@ The scene honours the register of the manuscript (no confrontation, no speech, n
 
 **Also corrected:** An editorial artifact ("Ch. 17") that appeared in the prose was replaced with a proper story reference ("the morning after the gallery confrontation with Bret").
 
+## Session 10
+
+**Task:** Part 1 developmental edits — all nine items identified in prior dev pass
+**Files changed:** Chs. 1, 2, 3, 5, 6, 7, 8, 9 (manuscript); `character-arcs.md` (bible)
+
+**What changed and why:**
+
+**Ch. 1 — Wishing and Finding:** Removed the explicit managing-voice line (*Stop, said the part of her that managed things. You met a man in a museum. That's all this is.*) in Maya's closing section. The managing voice settles organically in the final paragraphs; naming it first pre-empted what the prose was already doing. The chapter now runs from her physical walking to the managing voice settling, without announcing itself.
+
+**Ch. 2 — First Texts and Confessions:** Cut the Jake coda (the "You've got it bad" / "I've met her once" / "Once was enough for you to text me at eleven at night" exchange). The chapter's right closing is Ethan filing away the full stop and everything else he'd been cataloguing since the museum. The Jake exchange was a second ending that talked about what the prose had already shown.
+
+**Ch. 3 — Coffee and Connection:** Removed *I know. I know. I'm trying.* from Maya's closing moment at the sink. Zoe's squeeze and Maya standing with the dish towel carry it. The interiority was redundant and the chapter lands cleaner in the physical detail.
+
+**Ch. 5 — Integrating Lives:** Reduced *"Please don't reject me, Ethan. Not you. I can't bear it. I love you too much."* to *"Please."* The original line was too articulate for where Maya is in that moment — she's mid-collapse, not mid-speech. The single word gives Ethan's response (`I'm still here`) everything it needs to land.
+
+**Ch. 6 — The Morning After:** Cut *"I know that too."* from Ethan's love declaration. He already said *I know* in the prior exchange; the repeated phrase before *I love you back* softened the declaration into a hesitation. Now: *"I love you back." He squeezed once.* Clean and certain.
+
+**Ch. 7 — Two Days After:** Removed *"That's who I want to be all the time."* from Maya's post-thesis line. The thesis scene showed her alive in front of a room; having her announce the aspiration undercut the show-don't-tell the chapter had earned. The line now ends: *"That's who I am when I'm not afraid."* Ethan's *I know. I've been watching you get there.* lands harder for it.
+
+**Ch. 8 — Deeper Vulnerabilities:** Reordered the darkroom closing. The notebook entry (*Talk to Maya before anything. Her image, her decision. Ask, don't present.*) was appearing before the final look at the prints, which meant the character decision preceded the realisation that prompted it. Reordered to: final look → realisation (*He wasn't capturing her*) → notebook entry → light off. Now the sequence is causal.
+
+**Ch. 9 — Rachel:** Removed the near-duplicate Rachel speech from the brunch scene (*He's different since he met you... not different in the way people get when they're performing happiness...*). That beat repeats almost verbatim what Rachel says in the café scene, which is the stronger version — it has the specific brunch memory and the *there he is, that's my brother* detail. The brunch scene now moves directly from the cleared plates and ease of conversation to Rachel texting at three.
+
+**character-arcs.md:** Corrected the one-chapter numbering offset for Chs. 7–11. Ethan's arc now correctly shows: Ch. 7 (pub/thesis presentation), Ch. 8 (sick day/portrait series), Ch. 9 (Jake verdict by text), Ch. 10 (Rachel brunch). Maya's arc corrected in parallel: Ch. 7 (pub/thesis presentation), Ch. 8 (sick day/portrait series), Ch. 9 (meets Rachel at brunch/café), Ch. 10 (portrait series — note: this was formerly split across Chs. 8 and 10 in the old arc), Ch. 11 (cross-reference to Ethan Ch. 10 brunch). Old entries referencing events that no longer exist in the manuscript (Jake apology scene, Maya waiting all day) removed.
+
 **What Still Needs Doing**
 
-1. **Part 1 developmental edits** — all items from Session 4 dev pass (Chs. 1, 2, 3, 5, 6, 7, 8, 9). To be done next session.
-2. **Outline correction (Chs. 21–24)** — `outline-master.md` entries misaligned from Session 3 reorder. Author review item.
-3. **Drama pass — Recommendation 2:** Expand Ch. 14 (The Faith Crisis) door scene — give Maya's body at the door, the chaplain's voice arriving, the specific fear. Currently ~300 words; needs a full scene. ✅ DONE — Session 9
-4. **Drama pass — Recommendation 3:** Add one brief Bret presence between Ch. 17 and the exhibition — a sentence or paragraph keeping him present as a live threat in the reader's mind.
-5. **Drama pass — Recommendation 4:** Add a moment of friction to the proposal scene (Ch. 29) — the flash of *is this actually available to me* before Maya says yes.
-6. **Drama pass — Recommendation 5:** Slow down the Eileen moment in Ch. 30 — Ethan's hand on Maya's arm, Eileen watching it, the grief and relief arriving. The pivot is there; the prose moves through it too quickly.
+1. **Outline correction (Chs. 21–24)** — `outline-master.md` entries misaligned from Session 3 reorder. Author review item.
+2. **character-arcs.md note for author:** Ch. 9 entry for Maya currently records the Rachel brunch + café meeting as Ch. 9 content — but the actual Ch. 9 file is the Rachel chapter which contains *both* scenes (brunch and café). The arc entry is accurate; flag is just for awareness.
 
 ---
 

@@ -72,6 +72,12 @@ Ethan was still talking. He hadn't noticed.
 
 Eileen noticed that he hadn't noticed. Maya could see her notice it — the understanding, arriving in real time, that the gesture had not been for her benefit, had not been performed for the future mother-in-law across the table, had been done without awareness because it was simply true, simply what his hands did, and always had. The same hands that had stood beside her at the exhibition, on the far side of the room, and said something easy and brief to the woman with her coat still on, the woman who had not yet decided whether she was staying.
 
+Maya watched her mother sit with that.
+
+Eileen's jaw was set in the careful way Maya knew — the posture of someone holding something at a controlled distance before it could reach them. But the distance was collapsing. Maya could see it collapsing. Twenty-six years of silence built on a fear — the specific fear that this would never happen, that her daughter would move through the world hidden and alone and unloved in the way that mattered most — and the fear was not being confirmed. It was being answered. By a man who had just touched Maya's arm in the middle of a sentence and kept talking, as if it were the most ordinary thing in the world.
+
+Because to him it was.
+
 The thing she feared most did not happen. It had not happened in the exhibition room, and it was not happening here.
 
 Maya watched her mother understand this. Watched it move through her the way large things moved through quiet people — internally, with the whole force of it contained, nothing escaping except the eyes, which could not be controlled entirely.

@@ -172,10 +172,10 @@ He thought about exhibiting them. He thought about the group show coming up in M
 
 He thought about Maya's face on the couch when he'd found the museum photo — that brief unguarded moment of being caught, being seen without having chosen it.
 
-He took out his notebook and wrote: *Talk to Maya before anything. Her image, her decision. Ask, don't present.*
-
 He looked at the three prints again.
 
 He wasn't capturing her. He understood that now, standing in the red light with the chemical smell around him and her face looking back at him from three angles. He was being trusted with something. The question was whether he was worthy of it, and the only way to answer that was to ask.
+
+He took out his notebook and wrote: *Talk to Maya before anything. Her image, her decision. Ask, don't present.*
 
 He turned off the darkroom light and went to make tea and thought about how to begin that conversation.

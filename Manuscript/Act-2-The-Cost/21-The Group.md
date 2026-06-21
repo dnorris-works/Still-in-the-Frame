@@ -71,3 +71,17 @@ His reply came before she reached the end of the street. *Come over. Bring whate
 She put her phone in her pocket and turned toward his street and walked through the cold and thought about next Wednesday and the chair she would sit in and what she might say when it was her turn again. She thought about Clare's biscuits and Diane's four years and the specific, irreplaceable thing of being in a room where the grammar was already understood.
 
 She walked. The city was cold and bright around her and she was not alone in it.
+
+Somewhere on the second block, without invitation, the thought of Bret arrived.
+
+Not his face. Just the fact of him — the press credential, the notebook, the platform he had, the calendar date of the spring opening sitting in the future like a fixed point she was walking toward. She had spent four months making decisions that moved her toward that date and she had not stopped to ask, in any quiet moment, what she would do if he had been doing the same. If he had been sitting at his desk and writing, slowly, from the notes he had been taking for years, working toward his own version of March.
+
+She stopped on the pavement.
+
+The cold air. The bright city. The warmth of the room she had just left still in her chest.
+
+Both things. Both, at the same time. This was what it was going to be — not the fear replaced by the warmth, but both of them in the same body, walking home on the same night.
+
+She stood there for a moment, then she started walking again.
+
+Ethan's light was on when she reached his street.
