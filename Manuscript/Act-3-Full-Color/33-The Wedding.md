@@ -100,9 +100,7 @@ She was ready.
 
 She walked through the door and the church went quiet the way a room does when it sees the thing it has been waiting for.
 
-She walked up the aisle and looked at him and he looked at her and neither of them looked away and she was aware, peripherally, of the photographs on the walls — her own life on either side of her as she walked through it — and as she passed the front row she saw Eileen looking at the library photograph on the wall beside her, the one of Maya bent over a book in winter light, absorbed; and then Eileen looked at her, directly, completely, without looking away, the way she had never quite managed before, in all the years of careful presence and careful silence — and Maya let her, held her gaze for one full step, and then looked back at Ethan, because that was where she was, and where she was going to be.
-
-She reached him.
+She walked up the aisle and looked at him and he looked at her and neither of them looked away and she was aware, peripherally, of the photographs on the walls — her own life on either side of her as she walked through it — and she reached him.
 
 He took both her hands. His grip was firm. She could feel him breathing.
 

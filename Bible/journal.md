@@ -208,10 +208,20 @@ The scene honours the register of the manuscript (no confrontation, no speech, n
 
 **character-arcs.md:** Corrected the one-chapter numbering offset for Chs. 7–11. Ethan's arc now correctly shows: Ch. 7 (pub/thesis presentation), Ch. 8 (sick day/portrait series), Ch. 9 (Jake verdict by text), Ch. 10 (Rachel brunch). Maya's arc corrected in parallel: Ch. 7 (pub/thesis presentation), Ch. 8 (sick day/portrait series), Ch. 9 (meets Rachel at brunch/café), Ch. 10 (portrait series — note: this was formerly split across Chs. 8 and 10 in the old arc), Ch. 11 (cross-reference to Ethan Ch. 10 brunch). Old entries referencing events that no longer exist in the manuscript (Jake apology scene, Maya waiting all day) removed.
 
+## Session 11
+
+**Task:** Two additions — Ethan self-portrait beat; photograph description in Ch. 24
+**Files changed:** Ch. 27 (Act-3-Full-Color), Ch. 24 (Act-2-The-Cost)
+
+**What changed and why:**
+
+**Ch. 27 — The Darkroom:** Added a self-portrait beat in the first section, before Ethan moves to the opening night roll. He finds a self-portrait on the first roll, prints it, watches it come up in the developer. Same problem it has always been: technically accurate, essentially false. He puts it in the discard tray and moves on. No resolution — the thread stays open by design. The beat works here because the chapter already has him processing what he can see in Maya (the east wall photograph, her posture entirely open) and now the reader understands that he knows the difference. He can see everyone except himself. That contrast is his limitation, and it makes his goodness feel earned rather than given.
+
+**Ch. 24 — The Display:** Replaced the generic opening (large-scale photographs on white walls, surreal dialogue) with a proper description of the three images and the room. The walls are black — matte, floor to ceiling, a deliberate choice that makes the photographs inevitable rather than displayed. The three images described in sequence: the first (Maya alone, reaching, the moment before arrival); the second (the same reach, Ethan's hand descending two inches from hers, the gap as subject); the third (Maya facing the camera, Ethan behind her hidden by her, both looking, nothing managed). The description ends on *we are here. look.* — the argument of the whole exhibition stated without being stated. The exhibition opening then follows, and Maya watches people encounter what the reader has already seen.
+
 **What Still Needs Doing**
 
 1. **Outline correction (Chs. 21–24)** — `outline-master.md` entries misaligned from Session 3 reorder. Author review item.
-2. **character-arcs.md note for author:** Ch. 9 entry for Maya currently records the Rachel brunch + café meeting as Ch. 9 content — but the actual Ch. 9 file is the Rachel chapter which contains *both* scenes (brunch and café). The arc entry is accurate; flag is just for awareness.
 
 ---
 
@@ -225,11 +235,11 @@ The scene honours the register of the manuscript (no confrontation, no speech, n
 - Maya's father: ✅ left at twelve; walked her down the aisle
 - The faith resolution: ✅ Riverside Community Church, Nancy Griffin, the wedding
 - Bret's reappearance: ✅ Chs. 18 and 23; leaves without writing
-- The self-portrait thread: ⚠️ Introduced Ch. 1, shifts Ch. 7, not fully resolved on the page
+- The self-portrait thread: ✅ Introduced Ch. 1, dramatised in Ch. 27 — same problem, no resolution. Intentionally open by author decision.
 
 ## Open Questions — Remaining
 
-- Ethan's self-portrait arc: not closed in the manuscript. Whether this is intentional (the becoming continues) or an unfinished thread is for the author to decide.
+- Ethan's self-portrait arc: dramatised in Ch. 27 (technically accurate, essentially false; discard tray). Left open by author decision — the becoming continues. ✅
 - Jake's full arc: the card was a beginning. Whether a fuller reckoning exists off-page is unresolved — and by the author's design, likely intentionally so.
 - Maya's father: the conversation after the wedding is referenced but not dramatised. Open as a possible future scene.
 - Priya and Jake's longer arc: they appear consistently but Priya's character is not deeply explored.

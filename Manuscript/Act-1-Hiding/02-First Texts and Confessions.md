@@ -198,10 +198,4 @@ He stared at that for a moment. Then typed: *See you at two.* Sent it before Jak
 
 Maya sent back a single punctuation mark: a full stop. Which meant, he thought, that she was also trying not to say too much. He filed that away alongside everything else he'd been filing since last night — the tilt of her head, the precision of her attention, the real smile that arrived like weather changing, the way she'd asked her question directly rather than letting it sit.
 
-"You've got it bad," Jake said cheerfully.
 
-Ethan put his phone down. "I've met her once."
-
-"Yeah." Jake stood and picked up his coffee. "Once was enough for you to text me about it at eleven at night. When do you ever text anyone at eleven at night?"
-
-He didn't answer, because Jake was right and they both knew it, and there was nothing useful to add.

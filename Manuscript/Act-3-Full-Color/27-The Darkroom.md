@@ -6,6 +6,18 @@ Not to avoid her — she was still asleep, and he had stood in the bedroom doorw
 
 The room had its own smell — fixer and developer, the chemical dark he had been living in since he was nineteen. The darkroom had been his mother's before it was his. She had converted the back bathroom herself, blacked out the window, modified the ventilation, repurposed the old sink. Her enlarger was still on the shelf above his own. He had never moved it. She had given him his first one, a smaller model, and said: show me something true. He had the radio on low, the red lamp casting its amber over everything, and he worked through the first roll without thinking about much. The motions were long habit — agitate, wait, pour, rinse — the kind of work the hands could do while the rest of the mind was elsewhere.
 
+The first roll had a self-portrait on it. Three frames from two weeks ago, taken on a Sunday when the house was quiet and he had set the timer and tried again. He examined the negatives with the loupe and then printed the best of the three because not printing it would have been its own kind of avoidance.
+
+It came up in the tray the way they always did. The composition was correct. The light was considered. The man looking back at him from the developer bath was technically himself — his face, his shoulders, the particular quality of stillness he knew he wore in front of a camera — and was in every way that mattered a performance. He knew what it looked like to be in front of a lens and not performing. He had it on the wire behind him, dozens of times, in Maya's face. He knew the difference.
+
+He couldn't do it with himself. Two years and he could not get behind it.
+
+He moved the print to the stop bath, then the fixer, then the wash. He clipped it to the wire to dry. He stood back and looked at it.
+
+Same problem. Technically accurate. Essentially false.
+
+He put it in the discard tray and moved to the second roll.
+
 The second roll was from the opening.
 
 He worked slowly with those. The negs were dense — he'd shot a lot, more than he'd planned, because he'd found himself unable to stop. The room had had a quality that night. He had been working exhibitions for eleven years and he had never felt a room like that one — not the energy of a good opening, the wine-and-talking, the social performance of people deciding how to respond to art. Something different. Something in the room that was real.

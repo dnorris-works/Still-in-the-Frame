@@ -1,28 +1,30 @@
 # Chapter 24: The Display
 
-The exhibition opened on a Thursday evening in March, spring light slanting through the museum's tall windows as guests arrived for the opening reception.
+The walls were black.
 
-Maya stood in the gallery entrance, watching people encounter the photographs for the first time. Each of the three images was printed large-scale, mounted on white walls with careful spacing.
+Not gallery white, not the neutral cream of the usual hanging space — black, floor to ceiling, a flat matte material that absorbed the light rather than reflecting it, that made the room feel deeper than its dimensions. Ethan had spent three days on it. Maya had stood in the doorway when it was done and understood immediately what he had known from the beginning: that the photographs needed a different kind of room. Not a room that presented them. A room that made them inevitable.
 
-"How does it feel?" Ethan asked, appearing beside her with two glasses of wine.
+The three photographs hung around corners, each on its own wall, each out of sight of the others. Black and white, each printed large — large enough that you could not look at them from the doorway and fully take them in. You had to enter the room. You had to come close. You had to turn.
 
-"Surreal," she admitted, accepting the glass. "Three months ago, these were private moments between us. Now they're public art."
+The first was there when you walked in. Maya alone. A side view, the full length of her, one arm raised, her hand reaching upward toward something outside the frame. The gesture had an openness to it that was not a pose — she was not performing reach, she was reaching, and the camera had caught the moment before arrival, the moment of pure direction. The side of her breast was visible. Her face was turned slightly away from the camera, toward whatever she was reaching for. There was no apology in the image. There was no awareness of being seen. There was only the reaching.
 
-Across the room, a middle-aged woman stopped in front of the first photograph — Maya alone, reaching upward — and stood there for several minutes without moving. Her head was tilted. She didn't look away.
+You turned the first corner and found the second. The same composition, or nearly. Maya's arm still raised, her hand still reaching. But now a second hand descending from the upper edge of the frame — Ethan's hand, unmistakably a man's hand, reaching down toward hers. Two inches between them. Neither touching. The gap between the two hands was the subject of the image. Everything else was context for the gap.
 
-"She gets it," Maya said quietly.
+You carried that with you to the second corner.
 
-"They all get it," Ethan replied. "Look around."
+The third was different in kind.
 
-She did. The gallery was full, but it wasn't the usual opening night crowd rushing between pieces. People were stopping, taking time with each image. A young couple stood before the third photograph — the one where she faced the camera fully, Ethan's arms around her. They were holding hands. The woman was wiping tears from her cheeks.
+She was facing the camera. Full length, fully visible, nothing turned away, nothing managed. Her hands were at her stomach. Her face was the face she made when she had stopped deciding what to do with her face — not blank, not composed, simply present. Behind her, Ethan. His arms around her, his hands at her stomach, and hers laid over his. His face above her left shoulder, looking into the lens with the same quality of expression: present, unperforming, there.
 
-"It's not what I expected," the woman was saying. "It's just — so honest."
+Both of them looking.
 
-Maya looked at them for a moment, then looked away.
+Just that. Both of them looking at whoever was standing in front of the photograph. Not asking for anything. Not explaining anything. Not managing the response. Just: *we are here. look.*
 
-Dr. Harrison found them near the entrance. "People are taking their time with it," she said. "I haven't seen a crowd move this slowly through a gallery in years."
+You arrived at it alone. You could not see the other two from here.
 
-Maya nodded. She was still watching the room.
+The exhibition opened on a Thursday evening in March, spring light slanting through the museum's tall windows as guests arrived for the reception.
+
+Maya stood near the entrance and watched people encounter the photographs for the first time.
 
 ---
 
